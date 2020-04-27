@@ -1,7 +1,3 @@
-# Summary
-
-* [Introduction](README.md)
-=======
 # Table of contents
 
 * [README](README.md)
