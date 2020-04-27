@@ -12,5 +12,6 @@
 * [Day 2020 04 19](day_2020-04-19/README.md)
   * [Mysql Zhu Cong Docker](day_2020-04-19/mysql-zhu-cong-docker.md)
 * [Day 2020 04 27](day_2020-04-27/README.md)
-  * [基于mycat的透明代理](day_2020-04-27/基于mycat的透明代理.md)
-  * [基于Sharding-JDBC的主从配置](day_2020-04-27/基于Sharding-JDBC的主从配置.md)
+  * [基于mycat的透明代理](day_2020-04-27/ji-yu-mycat-de-tou-ming-dai-li.md)
+  * [基于Sharding-JDBC的主从配置](day_2020-04-27/ji-yu-shardingjdbc-de-zhu-cong-pei-zhi.md)
+
