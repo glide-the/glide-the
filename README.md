@@ -1,31 +1,31 @@
 <h1 align="center">Hi there 👋, I'm dmeck</h1>
 <p align="center">
-AI Evaluator · DevOps Architect · Startup Builder
+Building innovative AI Evaluation Systems, architecting scalable DevOps solutions, and passionate about bringing impactful startups to life.
 </p>
 
----
+-----
 
 ### 🧠 About Me
 
-- 🔭 I’m building **AI Evaluation Systems** with LLMs & custom pipelines  
-- 🧱 Backend + Infra: Python, FastAPI, Kubernetes, MySQL  
-- 🔬 Research: RAG / Agent Orchestration / Prompt Optimization  
-- 💡 Past: Worked with Unsloth, LlamaFactory, CodeLlama, etc.  
-- 💬 Ask me about: `LangChain`, `ComfyUI`, `Fine-Tuning`, `IRR Forecasting`
+  - 🔭 Currently focused on building cutting-edge **AI Evaluation Systems** leveraging the power of Large Language Models and custom-designed pipelines to ensure reliability and performance.
+  - 🧱 Proficient in building robust and scalable backend infrastructure using Python, FastAPI, Kubernetes, and MySQL, essential for deploying and managing AI applications.
+  - 🔬 Deeply interested in research areas including **Retrieval-Augmented Generation (RAG)** for enhanced LLM knowledge, **Agent Orchestration** for building intelligent multi-agent systems, and **Prompt Optimization** techniques for maximizing LLM output quality.
+  - 💡 Past experience includes working with tools like Unsloth, LlamaFactory, and CodeLlama for fine-tuning and customizing Large Language Models.
+  - 💬 Happy to discuss topics such as LangChain for building LLM applications, ComfyUI for visual AI workflows, Fine-Tuning techniques for LLMs, and leveraging data-driven insights for IRR Forecasting.
 
----
+-----
 
 ### 🛠️ Tech Stack
 
 ![Python](https://img.shields.io/badge/Python-3670A0?style=flat&logo=python&logoColor=ffdd54)
 ![FastAPI](https://img.shields.io/badge/FastAPI-005571?style=flat&logo=fastapi)
-![MySQL](https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)
-![Docker](https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)
+!(https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)
+!(https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)
 ![Kubernetes](https://img.shields.io/badge/Kubernetes-326CE5?style=flat&logo=kubernetes)
 ![Vue.js](https://img.shields.io/badge/Vue.js-35495E?style=flat&logo=vue.js)
 ![Poetry](https://img.shields.io/badge/Poetry-60A5FA?style=flat&logo=python)
 
----
+-----
 
 ### 📈 GitHub Stats
 
@@ -34,23 +34,23 @@ AI Evaluator · DevOps Architect · Startup Builder
   <img src="https://github-readme-streak-stats.herokuapp.com/?user=dmeck&theme=radical" width="48%"/>
 </p>
 
----
+-----
 
 ### 🚀 Featured Projects
 
-- [🔗 AI EvalKit](https://github.com/your-org/ai-evalkit) – Modular framework for LLM evaluation
-- [📊 FinModeler](https://github.com/your-org/finmodeler) – KPI-based IRR forecast tool
-- [🧠 RAG-Playground](https://github.com/your-org/rag-playground) – Lightweight testbed for multi-modal RAG pipelines
+  - 🔗 **AI EvalKit** - A modular and extensible framework designed for comprehensive evaluation of Large Language Models, ensuring their accuracy, reliability, and ethical behavior.
+  - 📊 **FinModeler** - An advanced KPI-based tool for generating insightful Internal Rate of Return (IRR) forecasts, leveraging data-driven methodologies for strategic financial planning.
+  - 🧠 **RAG-Playground** - A lightweight and versatile testbed for experimenting with multi-modal Retrieval-Augmented Generation (RAG) pipelines, exploring innovative approaches to enhance LLM performance with external knowledge.
 
----
+-----
 
 ### 📬 Connect with Me
 
-- 💼 [LinkedIn](https://linkedin.com/in/yourname)
-- 📝 [Blog](https://your-blog-domain.com)
-- 📫 Email: yourname@example.com
+  - 💼 [LinkedIn](https://linkedin.com/in/yourname)
+  - 📝(https://your-blog-domain.com)
+  - 📫 Email: yourname@example.com
 
----
+-----
 
 ### 🧭 Motto of the Day
 
@@ -58,4 +58,4 @@ AI Evaluator · DevOps Architect · Startup Builder
 
 *(Want this to auto-refresh daily? Let me know, I can give you GitHub Actions script)*
 
----
+-----
