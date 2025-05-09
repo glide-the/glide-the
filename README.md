@@ -21,9 +21,9 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ![FastAPI](https://img.shields.io/badge/FastAPI-005571?style=flat&logo=fastapi)
 
-!(https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)
+![MySQL](https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)
 
-!(https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)
+![Docker](https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)
 
 ![Kubernetes](https://img.shields.io/badge/Kubernetes-326CE5?style=flat&logo=kubernetes)
 
