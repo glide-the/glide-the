@@ -17,19 +17,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🛠️ Tech Stack
 
-![Python](https://img.shields.io/badge/Python-3670A0?style=flat&logo=python&logoColor=ffdd54)
-
-![FastAPI](https://img.shields.io/badge/FastAPI-005571?style=flat&logo=fastapi)
-
-![MySQL](https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)
-
-![Docker](https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)
-
-![Kubernetes](https://img.shields.io/badge/Kubernetes-326CE5?style=flat&logo=kubernetes)
-
-![Vue.js](https://img.shields.io/badge/Vue.js-35495E?style=flat&logo=vue.js)
-
-![Poetry](https://img.shields.io/badge/Poetry-60A5FA?style=flat&logo=python)
+![Python](https://img.shields.io/badge/Python-3670A0?style=flat&logo=python&logoColor=ffdd54)  ![FastAPI](https://img.shields.io/badge/FastAPI-005571?style=flat&logo=fastapi)  ![MySQL](https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)  ![Docker](https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)  ![Kubernetes](https://img.shields.io/badge/Kubernetes-326CE5?style=flat&logo=kubernetes)  ![Vue.js](https://img.shields.io/badge/Vue.js-35495E?style=flat&logo=vue.js)  ![Poetry](https://img.shields.io/badge/Poetry-60A5FA?style=flat&logo=python)
 
 -----
 
