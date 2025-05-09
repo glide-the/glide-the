@@ -18,11 +18,17 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 ### 🛠️ Tech Stack
 
 ![Python](https://img.shields.io/badge/Python-3670A0?style=flat&logo=python&logoColor=ffdd54)
+
 ![FastAPI](https://img.shields.io/badge/FastAPI-005571?style=flat&logo=fastapi)
+
 !(https://img.shields.io/badge/MySQL-005C84?style=flat&logo=mysql)
+
 !(https://img.shields.io/badge/Docker-2496ED?style=flat&logo=docker)
+
 ![Kubernetes](https://img.shields.io/badge/Kubernetes-326CE5?style=flat&logo=kubernetes)
+
 ![Vue.js](https://img.shields.io/badge/Vue.js-35495E?style=flat&logo=vue.js)
+
 ![Poetry](https://img.shields.io/badge/Poetry-60A5FA?style=flat&logo=python)
 
 -----
@@ -46,16 +52,15 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 📬 Connect with Me
 
-  - 💼 [LinkedIn](https://linkedin.com/in/yourname)
-  - 📝(https://your-blog-domain.com)
-  - 📫 Email: yourname@example.com
+  - 💼 [LinkedIn]([https://linkedin.com/in/yourname](https://www.linkedin.com/in/%E6%AF%9B%E5%B3%B0-%E5%BC%A0-253172350/))
+  - 📝([https://your-blog-domain.com](https://home.cnblogs.com/u/dmeck))
+  - 📫 Email: dmeck@suoxya.com
 
 -----
 
 ### 🧭 Motto of the Day
 
 > “Ship early. Iterate fast. Measure everything.”
-
-*(Want this to auto-refresh daily? Let me know, I can give you GitHub Actions script)*
+ 
 
 -----
