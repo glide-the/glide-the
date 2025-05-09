@@ -1,4 +1,4 @@
-<h1 align="center">Hi there 👋, I'm dmeck</h1>
+<h1 align="center">Hi there 👋, I'm glide-the</h1>
 <p align="center">
 Building innovative AI Evaluation Systems, architecting scalable DevOps solutions, and passionate about bringing impactful startups to life.
 </p>
@@ -36,8 +36,8 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 ### 📈 GitHub Stats
 
 <p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=dmeck&show_icons=true&theme=radical" width="48%"/>
-  <img src="https://github-readme-streak-stats.herokuapp.com/?user=dmeck&theme=radical" width="48%"/>
+  <img src="https://github-readme-stats.vercel.app/api?username=glide-the&show_icons=true&theme=radical" width="48%"/>
+  <img src="https://github-readme-streak-stats.herokuapp.com/?user=glide-the&theme=radical" width="48%"/>
 </p>
 
 -----
