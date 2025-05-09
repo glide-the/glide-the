@@ -1,0 +1,33 @@
+name: Update Motto Daily
+
+on:
+  schedule:
+    - cron: "0 0 * * *"  # 每天 UTC 零点运行（北京时间早上 8 点）
+  workflow_dispatch:
+
+jobs:
+  update-motto:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout Repository
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.10'
+
+      - name: Install Dependencies
+        run: pip install --upgrade pip
+
+      - name: Update Motto in README
+        run: python scripts/update_motto.py
+
+      - name: Commit and Push
+        run: |
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add README.md
+          git commit -m "Update motto ✨" || echo "No changes to commit"
+          git push
