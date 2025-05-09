@@ -41,7 +41,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 ### 📬 Connect with Me
 
   - 💼 [LinkedIn]([https://linkedin.com/in/yourname](https://www.linkedin.com/in/%E6%AF%9B%E5%B3%B0-%E5%BC%A0-253172350/))
-  - 📝([https://your-blog-domain.com](https://home.cnblogs.com/u/dmeck))
+  - 📝([https://home.cnblogs.com/u/dmeck](https://home.cnblogs.com/u/dmeck))
   - 📫 Email: dmeck@suoxya.com
 
 -----
