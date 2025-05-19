@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Problems remain as problems because people are busy defending them rather than finding solutions. — Celestine Chua”
+> “Everyone thinks of changing the world, but no one thinks of changing himself. — Leo Tolstoy”
  
 
 -----
