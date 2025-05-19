@@ -22,7 +22,7 @@ jobs:
         run: pip install --upgrade pip
 
       - name: Update Motto in README
-        run: python scripts/update_motto.py
+        run: python .github/workflows/scripts/update_motto.py
 
       - name: Commit and Push
         run: |
