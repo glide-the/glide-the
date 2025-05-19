@@ -24,7 +24,7 @@ jobs:
       - name: Update Motto in README
         run: |
           pwd
-          ls
+          ls .github
           python "./.github/workflows/scripts/update_motto.py"  
       - name: Commit and Push
         run: |
