@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Ship early. Iterate fast. Measure everything.”
+> “Problems remain as problems because people are busy defending them rather than finding solutions. — Celestine Chua”
  
 
 -----
