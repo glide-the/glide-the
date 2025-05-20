@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Everyone thinks of changing the world, but no one thinks of changing himself. — Leo Tolstoy”
+> “If you pray for rain, be prepared to deal with some mud. — Mary Engelbreit”
  
 
 -----
