@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If you pray for rain, be prepared to deal with some mud. — Mary Engelbreit”
+> “You can have results or excuses, but not both. — Arnold Schwarzenegger”
  
 
 -----
