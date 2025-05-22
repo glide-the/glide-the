@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “You can have results or excuses, but not both. — Arnold Schwarzenegger”
+> “What loneliness is more lonely than distrust? — George Eliot”
  
 
 -----
