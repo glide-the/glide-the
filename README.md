@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “What loneliness is more lonely than distrust? — George Eliot”
+> “We are born from a quiet sleep, and we die to a calm awakening — Zhuangzi”
  
 
 -----
