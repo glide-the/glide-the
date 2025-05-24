@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “We are born from a quiet sleep, and we die to a calm awakening — Zhuangzi”
+> “Love the life you live, live the life you love. — Bob Marley”
  
 
 -----
