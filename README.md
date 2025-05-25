@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Love the life you live, live the life you love. — Bob Marley”
+> “If you do not tell the truth about yourself you cannot tell it about other people. — Virginia Woolf”
  
 
 -----
