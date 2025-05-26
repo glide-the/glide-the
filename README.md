@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If you do not tell the truth about yourself you cannot tell it about other people. — Virginia Woolf”
+> “There is little success where there is little laughter. — Andrew Carnegie”
  
 
 -----
