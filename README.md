@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “There is little success where there is little laughter. — Andrew Carnegie”
+> “The world doesn't always give you want, but it often gives you what you need. — Naval Ravikant”
  
 
 -----
