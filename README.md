@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The world doesn't always give you want, but it often gives you what you need. — Naval Ravikant”
+> “The greatest weariness comes from work not done. — Eric Hoffer”
  
 
 -----
