@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The greatest weariness comes from work not done. — Eric Hoffer”
+> “Always render more and better service than is expected of you, no matter what your task may be. — Og Mandino”
  
 
 -----
