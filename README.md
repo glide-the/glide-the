@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Always render more and better service than is expected of you, no matter what your task may be. — Og Mandino”
+> “Your work is to discover your work and then, with all your heart, to give yourself to it. — Buddha”
  
 
 -----
