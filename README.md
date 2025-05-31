@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Your work is to discover your work and then, with all your heart, to give yourself to it. — Buddha”
+> “Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. — Celestine Chua”
  
 
 -----
