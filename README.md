@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. — Celestine Chua”
+> “Any game becomes important when you know and love the players. — W.P. Kinsella”
  
 
 -----
