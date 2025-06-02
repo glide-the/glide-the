@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Any game becomes important when you know and love the players. — W.P. Kinsella”
+> “Nothing is particularly hard if you divide it into small jobs.  — Henry Ford”
  
 
 -----
