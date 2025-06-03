@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Nothing is particularly hard if you divide it into small jobs.  — Henry Ford”
+> “The quality of your commitments will determine the course of your life. — Ralph Marston”
  
 
 -----
