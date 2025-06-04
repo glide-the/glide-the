@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The quality of your commitments will determine the course of your life. — Ralph Marston”
+> “Setting goals is the first step in turning the invisible into the visible. — Tony Robbins”
  
 
 -----
