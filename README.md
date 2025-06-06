@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Wake up and smile! Wake up and be grateful! — Steve Harvey”
+> “We would accomplish many more things if we did not think of them as impossible. — Vince Lombardi”
  
 
 -----
