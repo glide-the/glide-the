@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “We would accomplish many more things if we did not think of them as impossible. — Vince Lombardi”
+> “In nature there is no alienation. Everything belongs. — Ming-Dao Deng”
  
 
 -----
