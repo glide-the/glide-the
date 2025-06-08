@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “In nature there is no alienation. Everything belongs. — Ming-Dao Deng”
+> “When asked, how do you write? I invariably answer, one word at a time. — Stephen King”
  
 
 -----
