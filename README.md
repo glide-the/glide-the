@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “When asked, how do you write? I invariably answer, one word at a time. — Stephen King”
+> “To avoid criticism, do nothing, say nothing, and be nothing. — Elbert Hubbard”
  
 
 -----
