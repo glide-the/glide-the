@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “To avoid criticism, do nothing, say nothing, and be nothing. — Elbert Hubbard”
+> “The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — Norman Vincent Peale”
  
 
 -----
