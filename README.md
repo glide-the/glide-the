@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Let each man exercise the art he knows. — Aristophanes”
+> “He who hesitates is a damned fool. — Mae West”
  
 
 -----
