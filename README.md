@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “He who hesitates is a damned fool. — Mae West”
+> “I wasn't brave, I just didn't have time to be scared. — Amelia Earhart”
  
 
 -----
