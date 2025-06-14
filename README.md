@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “I wasn't brave, I just didn't have time to be scared. — Amelia Earhart”
+> “Life is not just the passing of time. Life is the collection of experiences and their intensity. — Jim Rohn”
  
 
 -----
