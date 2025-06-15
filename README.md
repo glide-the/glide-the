@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Life is not just the passing of time. Life is the collection of experiences and their intensity. — Jim Rohn”
+> “Better a diamond with a flaw than a pebble without one. — Chinese Proverb”
  
 
 -----
