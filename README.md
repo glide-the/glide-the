@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Better a diamond with a flaw than a pebble without one. — Chinese Proverb”
+> “I have not failed. I've just found 10,000 ways that won't work. — Thomas Edison”
  
 
 -----
