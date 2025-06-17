@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “I have not failed. I've just found 10,000 ways that won't work. — Thomas Edison”
+> “Take responsibility of your own happiness, never put it in other people's hands. — Roy T. Bennett”
  
 
 -----
