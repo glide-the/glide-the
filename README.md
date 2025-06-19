@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Waste not fresh tears over old griefs. — Euripides”
+> “In order to attain the impossible, one must attempt the absurd. — Miguel de Cervantes”
  
 
 -----
