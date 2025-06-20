@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “In order to attain the impossible, one must attempt the absurd. — Miguel de Cervantes”
+> “The best time to plant a tree was 20 years ago. The second best time is now. — Zen Proverb”
  
 
 -----
