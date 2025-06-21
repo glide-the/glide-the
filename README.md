@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The best time to plant a tree was 20 years ago. The second best time is now. — Zen Proverb”
+> “Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — Buddha”
  
 
 -----
