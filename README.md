@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — Buddha”
+> “Failure is simply the opportunity to begin again, this time more intelligently. — Henry Ford”
  
 
 -----
