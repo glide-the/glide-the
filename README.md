@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Failure is simply the opportunity to begin again, this time more intelligently. — Henry Ford”
+> “Learn to value yourself, which means: fight for your happiness. — Ayn Rand”
  
 
 -----
