@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Learn to value yourself, which means: fight for your happiness. — Ayn Rand”
+> “Mistakes are always forgivable, if one has the courage to admit them.  — Bruce Lee”
  
 
 -----
