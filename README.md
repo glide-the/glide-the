@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Love is not about possession. Love is about appreciation. — Osho”
+> “Sometimes good things fall apart so better things can fall together. — Marilyn Monroe”
  
 
 -----
