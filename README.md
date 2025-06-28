@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Sometimes good things fall apart so better things can fall together. — Marilyn Monroe”
+> “The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. — Mark Twain”
  
 
 -----
