@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. — Mark Twain”
+> “Do something worth remembering. — Elvis Presley”
  
 
 -----
