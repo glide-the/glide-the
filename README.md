@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Do something worth remembering. — Elvis Presley”
+> “Nothing endures but change. — Heraclitus”
  
 
 -----
