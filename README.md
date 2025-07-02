@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Decide upon your major definite purpose in life and then organize all your activities around it. — Brian Tracy”
+> “Who you are is always right. — Ming-Dao Deng”
  
 
 -----
