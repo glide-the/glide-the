@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Who you are is always right. — Ming-Dao Deng”
+> “Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found. — Alexander Pope”
  
 
 -----
