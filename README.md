@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found. — Alexander Pope”
+> “You have to make time, even for something as universal as staring at the stars. — W.P. Kinsella”
  
 
 -----
