@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “You have to make time, even for something as universal as staring at the stars. — W.P. Kinsella”
+> “To plant a garden is to believe in tomorrow.   — Audrey Hepburn”
  
 
 -----
