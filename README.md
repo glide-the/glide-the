@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “To plant a garden is to believe in tomorrow.   — Audrey Hepburn”
+> “You are today where your thoughts have brought you. — James Allen”
  
 
 -----
