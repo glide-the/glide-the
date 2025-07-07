@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “You are today where your thoughts have brought you. — James Allen”
+> “Don't give up on your dreams, or your dreams will give up on you. — John Wooden”
  
 
 -----
