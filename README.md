@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Don't give up on your dreams, or your dreams will give up on you. — John Wooden”
+> “When a man is penalized for honesty he learns to lie. — Criss Jami”
  
 
 -----
