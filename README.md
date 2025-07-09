@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “When a man is penalized for honesty he learns to lie. — Criss Jami”
+> “Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — Charles Dickens”
  
 
 -----
