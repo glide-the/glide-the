@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “From a certain point onward there is no longer any turning back. That is the point that must be reached. — Franz Kafka”
+> “A creative man is motivated by the desire to achieve, not by the desire to beat others. — Ayn Rand”
  
 
 -----
