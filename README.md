@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “A creative man is motivated by the desire to achieve, not by the desire to beat others. — Ayn Rand”
+> “If the only prayer you ever say in your entire life is thank you, it will be enough. — Meister Eckhart”
  
 
 -----
