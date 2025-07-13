@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If the only prayer you ever say in your entire life is thank you, it will be enough. — Meister Eckhart”
+> “In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — Theodore Roosevelt”
  
 
 -----
