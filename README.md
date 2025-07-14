@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — Theodore Roosevelt”
+> “As you love yourself, life loves you back. — Kamal Ravikant”
  
 
 -----
