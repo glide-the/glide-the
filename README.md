@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — John Lennon”
+> “Your worth consists in what you are and not in what you have. — Thomas Edison”
  
 
 -----
