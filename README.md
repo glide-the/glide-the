@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Your worth consists in what you are and not in what you have. — Thomas Edison”
+> “Just because something isn't a lie does not mean that it isn't deceptive. — Criss Jami”
  
 
 -----
