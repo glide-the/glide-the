@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Just because something isn't a lie does not mean that it isn't deceptive. — Criss Jami”
+> “We become what we believe. — Lolly Daskal”
  
 
 -----
