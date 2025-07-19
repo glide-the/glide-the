@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “We become what we believe. — Lolly Daskal”
+> “Hope is a waking dream. — Aristotle”
  
 
 -----
