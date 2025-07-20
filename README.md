@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Hope is a waking dream. — Aristotle”
+> “To know your Enemy, you must become your Enemy. — Sun Tzu”
  
 
 -----
