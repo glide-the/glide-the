@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “It's not what we do once in a while that shapes our lives, but what we do consistently. — Tony Robbins”
+> “We become brave by doing brave acts. — Aristotle”
  
 
 -----
