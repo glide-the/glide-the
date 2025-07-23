@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “We become brave by doing brave acts. — Aristotle”
+> “The person who cannot control his words shows that he cannot control himself. — Robert Greene”
  
 
 -----
