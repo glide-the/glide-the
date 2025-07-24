@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The person who cannot control his words shows that he cannot control himself. — Robert Greene”
+> “Turn your face to the sun, as flowers know how to do. — Ming-Dao Deng”
  
 
 -----
