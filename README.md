@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Turn your face to the sun, as flowers know how to do. — Ming-Dao Deng”
+> “an action committed in anger is an action doomed to failure.  — Genghis Khan”
  
 
 -----
