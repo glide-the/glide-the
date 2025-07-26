@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “an action committed in anger is an action doomed to failure.  — Genghis Khan”
+> “Happiness is pretty simple: someone to love, something to do, something to look forward to. — Rita Mae Brown”
  
 
 -----
