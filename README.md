@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Happiness is pretty simple: someone to love, something to do, something to look forward to. — Rita Mae Brown”
+> “Belief creates the actual fact. — William James”
  
 
 -----
