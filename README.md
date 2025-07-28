@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Belief creates the actual fact. — William James”
+> “Don't wish it were easier, wish you were better. — Jim Rohn”
  
 
 -----
