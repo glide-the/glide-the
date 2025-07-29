@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Don't wish it were easier, wish you were better. — Jim Rohn”
+> “Don't listen to the person who has the answers; listen to the person who has the questions. — Albert Einstein”
  
 
 -----
