@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Don't listen to the person who has the answers; listen to the person who has the questions. — Albert Einstein”
+> “Just living is not enough... one must have sunshine, freedom, and a little flower.  — Hans Christian Andersen”
  
 
 -----
