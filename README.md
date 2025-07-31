@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Just living is not enough... one must have sunshine, freedom, and a little flower.  — Hans Christian Andersen”
+> “Insanity: doing the same thing over and over again and expecting different results. — Albert Einstein”
  
 
 -----
