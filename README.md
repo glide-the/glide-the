@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Insanity: doing the same thing over and over again and expecting different results. — Albert Einstein”
+> “Do not stop thinking of life as an adventure. — Eleanor Roosevelt”
  
 
 -----
