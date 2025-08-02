@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Do not stop thinking of life as an adventure. — Eleanor Roosevelt”
+> “Those who bring sunshine into the lives of others cannot keep it from themselves. — James Matthew Barrie”
  
 
 -----
