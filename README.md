@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Those who bring sunshine into the lives of others cannot keep it from themselves. — James Matthew Barrie”
+> “Freeing oneself from words is liberation.  — Bodhidharma”
  
 
 -----
