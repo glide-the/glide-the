@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If a thing is worth doing, it is worth doing badly. — Gilbert Chesterton”
+> “Nourish the mind like you would your body. The mind cannot survive on junk food. — Brian Tracy”
  
 
 -----
