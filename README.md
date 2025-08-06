@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Nourish the mind like you would your body. The mind cannot survive on junk food. — Brian Tracy”
+> “Trust in dreams, for in them is the hidden gate to eternity.   — Kahlil Gibran”
  
 
 -----
