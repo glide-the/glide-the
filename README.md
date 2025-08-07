@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Trust in dreams, for in them is the hidden gate to eternity.   — Kahlil Gibran”
+> “I live by letting things happen. — Dogen”
  
 
 -----
