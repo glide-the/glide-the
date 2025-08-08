@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “I live by letting things happen. — Dogen”
+> “Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — Paulo Coelho”
  
 
 -----
