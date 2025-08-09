@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — Paulo Coelho”
+> “If you want to know what God thinks about money just look at the people He gives it to. — Alexander Pope”
  
 
 -----
