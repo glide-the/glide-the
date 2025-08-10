@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If you want to know what God thinks about money just look at the people He gives it to. — Alexander Pope”
+> “Find the game where you can win, and then commit your life to playing it; and play to win. — Robert Kiyosaki”
  
 
 -----
