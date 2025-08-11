@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Find the game where you can win, and then commit your life to playing it; and play to win. — Robert Kiyosaki”
+> “The best of us sometimes eat our words.   — Albus Dumbledore”
  
 
 -----
