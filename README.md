@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — Rumi”
+> “It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — Steve Maraboli”
  
 
 -----
