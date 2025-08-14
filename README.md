@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — Steve Maraboli”
+> “The first rule of handling conflict is don't hang around people who are constantly engaging in conflict. — Naval Ravikant”
  
 
 -----
