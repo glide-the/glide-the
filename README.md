@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The first rule of handling conflict is don't hang around people who are constantly engaging in conflict. — Naval Ravikant”
+> “Knowledge has to be improved, challenged, and increased constantly, or it vanishes. — Peter Drucker”
  
 
 -----
