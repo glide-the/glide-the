@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Knowledge has to be improved, challenged, and increased constantly, or it vanishes. — Peter Drucker”
+> “The people who succeed are irrationally passionate about something. — Naval Ravikant”
  
 
 -----
