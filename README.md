@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The people who succeed are irrationally passionate about something. — Naval Ravikant”
+> “To earn more you must learn more. — Brian Tracy”
  
 
 -----
