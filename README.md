@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “To earn more you must learn more. — Brian Tracy”
+> “We will outstretch the hand if you unclench your fist. — Barack Obama”
  
 
 -----
