@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “We will outstretch the hand if you unclench your fist. — Barack Obama”
+> “Think and wonder, wonder and think. — Dr. Seuss”
  
 
 -----
