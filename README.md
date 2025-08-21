@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — Criss Jami”
+> “Every time we liberate a woman, we liberate a man.  — Margaret Mead”
  
 
 -----
