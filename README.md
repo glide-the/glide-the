@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Every time we liberate a woman, we liberate a man.  — Margaret Mead”
+> “It's not the love you make. It's the love you give.  — Nikola Tesla”
  
 
 -----
