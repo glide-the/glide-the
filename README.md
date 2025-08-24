@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — Brian Tracy”
+> “True prayer has no set form. — Morihei Ueshiba”
  
 
 -----
