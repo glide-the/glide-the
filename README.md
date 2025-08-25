@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “True prayer has no set form. — Morihei Ueshiba”
+> “Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — Brian Tracy”
  
 
 -----
