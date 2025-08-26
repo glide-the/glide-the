@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — Brian Tracy”
+> “What we know is a drop, what we don't know is an ocean.  — Isaac Newton”
  
 
 -----
