@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “What we know is a drop, what we don't know is an ocean.  — Isaac Newton”
+> “Perfection is not attainable, but if we chase perfection we can catch excellence. — Vince Lombardi”
  
 
 -----
