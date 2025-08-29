@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “My powers are ordinary. Only my application brings me success. — Isaac Newton”
+> “Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard. — Colin Powell”
  
 
 -----
