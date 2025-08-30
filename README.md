@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard. — Colin Powell”
+> “What the mind can conceive and believe, and the heart desire, you can achieve. — Norman Vincent Peale”
  
 
 -----
