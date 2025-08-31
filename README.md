@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “What the mind can conceive and believe, and the heart desire, you can achieve. — Norman Vincent Peale”
+> “Everyone thinks of changing the world, but no one thinks of changing himself. — Leo Tolstoy”
  
 
 -----
