@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Everyone thinks of changing the world, but no one thinks of changing himself. — Leo Tolstoy”
+> “There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever. — Alexandre Dumas”
  
 
 -----
