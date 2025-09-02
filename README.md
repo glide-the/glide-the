@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever. — Alexandre Dumas”
+> “You don't need anybody to tell you who you are or what you are. You are what you are! — John Lennon”
  
 
 -----
