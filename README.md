@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “You don't need anybody to tell you who you are or what you are. You are what you are! — John Lennon”
+> “To some degree, you control your life by controlling your time. — Conrad Hilton”
  
 
 -----
