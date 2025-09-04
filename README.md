@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “To some degree, you control your life by controlling your time. — Conrad Hilton”
+> “Fear, uncertainty, and discomfort are your compasses toward growth. — Celestine Chua”
  
 
 -----
