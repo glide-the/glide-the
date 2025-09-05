@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Fear, uncertainty, and discomfort are your compasses toward growth. — Celestine Chua”
+> “There is only one thing in the world worse than being talked about, and that is not being talked about.  — Oscar Wilde”
  
 
 -----
