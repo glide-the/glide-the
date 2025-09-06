@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “There is only one thing in the world worse than being talked about, and that is not being talked about.  — Oscar Wilde”
+> “In the beginner's mind there are many possibilities, but in the expert's mind there are few. — Shunryu Suzuki”
  
 
 -----
