@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “In the beginner's mind there are many possibilities, but in the expert's mind there are few. — Shunryu Suzuki”
+> “Every day do something that will inch you closer to a better tomorrow. — Unknown”
  
 
 -----
