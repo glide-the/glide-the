@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Every day do something that will inch you closer to a better tomorrow. — Unknown”
+> “The fewer the words, the better the prayer. — Martin Luther”
  
 
 -----
