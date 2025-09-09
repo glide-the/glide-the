@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The fewer the words, the better the prayer. — Martin Luther”
+> “Many roads lead to the path, but basically there are only two: reason and practice.  — Bodhidharma”
  
 
 -----
