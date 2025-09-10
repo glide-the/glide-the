@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Many roads lead to the path, but basically there are only two: reason and practice.  — Bodhidharma”
+> “From a certain point onward there is no longer any turning back. That is the point that must be reached. — Franz Kafka”
  
 
 -----
