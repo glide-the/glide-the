@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “From a certain point onward there is no longer any turning back. That is the point that must be reached. — Franz Kafka”
+> “The only thing new in the world is the history you do not know. — Harry S. Truman”
  
 
 -----
