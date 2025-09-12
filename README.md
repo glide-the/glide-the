@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The only thing new in the world is the history you do not know. — Harry S. Truman”
+> “Everything flows, nothing stands still. — Heraclitus”
  
 
 -----
