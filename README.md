@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Everything flows, nothing stands still. — Heraclitus”
+> “Time doesn't heal emotional pain, you need to learn how to let go. — Roy T. Bennett”
  
 
 -----
