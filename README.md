@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Time doesn't heal emotional pain, you need to learn how to let go. — Roy T. Bennett”
+> “The world is changed by your example, not by your opinion. — Paulo Coelho”
  
 
 -----
