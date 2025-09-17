@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Poetry is written with tears, fiction with blood, and history with invisible ink. — Carlos Ruiz Zafon”
+> “Perplexity is the beginning of knowledge. — Kahlil Gibran”
  
 
 -----
