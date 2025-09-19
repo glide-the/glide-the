@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If you truly expect something to be difficult, it will be. — Peter A. Cohen”
+> “Most of us will do anything to avoid facing ourselves. — Lolly Daskal”
  
 
 -----
