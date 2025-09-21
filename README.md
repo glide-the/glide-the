@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Why change? Everyone has his own style. When you have found it, you should stick to it. — Audrey Hepburn”
+> “A crisis is an opportunity riding the dangerous wind. — Chinese Proverb”
  
 
 -----
