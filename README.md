@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Success is about creating value. — Candice Carpenter”
+> “Everything has its beauty, but not everyone sees it.  — Confucius”
  
 
 -----
