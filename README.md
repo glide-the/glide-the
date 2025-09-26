@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Everything has its beauty, but not everyone sees it.  — Confucius”
+> “As a matter of fact is an expression that precedes many an expression that isn't. — Laurence J. Peter”
  
 
 -----
