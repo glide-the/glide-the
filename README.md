@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “As a matter of fact is an expression that precedes many an expression that isn't. — Laurence J. Peter”
+> “A lie can travel half way around the world while the truth is putting on its shoes. — Mark Twain”
  
 
 -----
