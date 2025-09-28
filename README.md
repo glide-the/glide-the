@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “A lie can travel half way around the world while the truth is putting on its shoes. — Mark Twain”
+> “If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin. — Charles Darwin”
  
 
 -----
