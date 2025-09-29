@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin. — Charles Darwin”
+> “There is a difference between giving directions and giving direction. — Simon Sinek”
  
 
 -----
