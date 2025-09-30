@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “There is a difference between giving directions and giving direction. — Simon Sinek”
+> “Success is stumbling from failure to failure with no loss of enthusiasm. — Winston Churchill”
  
 
 -----
