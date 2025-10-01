@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Success is stumbling from failure to failure with no loss of enthusiasm. — Winston Churchill”
+> “Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases. — Sathya Sai Baba”
  
 
 -----
