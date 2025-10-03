@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined. — Deepak Chopra”
+> “A different result requires doing something different. — Gary Keller”
  
 
 -----
