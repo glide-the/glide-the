@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “A different result requires doing something different. — Gary Keller”
+> “Darkness is the absence of light. — Kamal Ravikant”
  
 
 -----
