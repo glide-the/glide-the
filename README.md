@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Darkness is the absence of light. — Kamal Ravikant”
+> “Absurdity is the ecstasy of intellectualism. — Criss Jami”
  
 
 -----
