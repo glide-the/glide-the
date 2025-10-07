@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Health is the greatest of all possessions. — Jonathan Swift”
+> “The goal is not to be perfect by the end, the goal is to be better today. — Simon Sinek”
  
 
 -----
