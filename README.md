@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Try to be a rainbow in someone's cloud. — Maya Angelou”
+> “There is no limitations except those we create for ourselves. — Lolly Daskal”
  
 
 -----
