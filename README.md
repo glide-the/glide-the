@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “There is no limitations except those we create for ourselves. — Lolly Daskal”
+> “There are no differences but differences of degree between different degrees of difference and no difference. — William James”
  
 
 -----
