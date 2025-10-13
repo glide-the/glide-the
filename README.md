@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “You make your own luck if you stay at it long enough. — Naval Ravikant”
+> “If you look for perfection, you'll never be content. — Leo Tolstoy”
  
 
 -----
