@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “If you look for perfection, you'll never be content. — Leo Tolstoy”
+> “Live calmly. The time will come when the flowers bloom by themselves. — Zen Proverb”
  
 
 -----
