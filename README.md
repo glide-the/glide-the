@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Live calmly. The time will come when the flowers bloom by themselves. — Zen Proverb”
+> “Make each day your masterpiece. — John Wooden”
  
 
 -----
