@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Make each day your masterpiece. — John Wooden”
+> “The future is no more uncertain than the present. — Walt Whitman”
  
 
 -----
