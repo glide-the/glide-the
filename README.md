@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The future is no more uncertain than the present. — Walt Whitman”
+> “The future will be shaped by those willing to commit their minds and their bodies to the task. — Robert F. Kennedy”
  
 
 -----
