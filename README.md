@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “The future will be shaped by those willing to commit their minds and their bodies to the task. — Robert F. Kennedy”
+> “You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — Alan Watts”
  
 
 -----
