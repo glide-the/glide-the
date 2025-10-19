@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — Alan Watts”
+> “Don't let the past steal your present. — Cherralea Morgen”
  
 
 -----
