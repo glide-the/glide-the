@@ -1,16 +1,16 @@
 <h1 align="center">Hi there 👋, I'm glide-the</h1>
 <p align="center">
-Building innovative AI Evaluation Systems, architecting scalable DevOps solutions, and passionate about bringing impactful startups to life.
+A Lacanian enthusiast with two and a half years of study.
+Skilled at designing software concepts, understanding market sentiments, and proficient in multiple programming languages. Passionate about algorithms and life itself, self-proclaimed “simp.”
+Often pierces through the illusions he observes — and tends to get in trouble for it.
 </p>
 
 -----
 
 ### 🧠 About Me
 
-  - 🔭 Currently focused on building cutting-edge **AI Evaluation Systems** leveraging the power of Large Language Models and custom-designed pipelines to ensure reliability and performance.
   - 🧱 Proficient in building robust and scalable backend infrastructure using Python, FastAPI, Kubernetes, and MySQL, essential for deploying and managing AI applications.
   - 🔬 Deeply interested in research areas including **Retrieval-Augmented Generation (RAG)** for enhanced LLM knowledge, **Agent Orchestration** for building intelligent multi-agent systems, and **Prompt Optimization** techniques for maximizing LLM output quality.
-  - 💡 Past experience includes working with tools like Unsloth, LlamaFactory, and CodeLlama for fine-tuning and customizing Large Language Models.
   - 💬 Happy to discuss topics such as LangChain for building LLM applications, ComfyUI for visual AI workflows, Fine-Tuning techniques for LLMs, and leveraging data-driven insights for IRR Forecasting.
 
 -----
@@ -30,13 +30,6 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 -----
 
-### 🚀 Featured Projects
-
-  - 🔗 **AI EvalKit** - A modular and extensible framework designed for comprehensive evaluation of Large Language Models, ensuring their accuracy, reliability, and ethical behavior.
-  - 📊 **FinModeler** - An advanced KPI-based tool for generating insightful Internal Rate of Return (IRR) forecasts, leveraging data-driven methodologies for strategic financial planning.
-  - 🧠 **RAG-Playground** - A lightweight and versatile testbed for experimenting with multi-modal Retrieval-Augmented Generation (RAG) pipelines, exploring innovative approaches to enhance LLM performance with external knowledge.
-
------
 
 ### 📬 Connect with Me
 
