@@ -48,7 +48,7 @@ Building innovative AI Evaluation Systems, architecting scalable DevOps solution
 
 ### 🧭 Motto of the Day
 
-> “Don't let the past steal your present. — Cherralea Morgen”
+> “The price of inaction is far greater than the cost of making a mistake. — Meister Eckhart”
  
 
 -----
