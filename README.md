@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Only the hand that erases can write the true thing. — Meister Eckhart”
+> “Nourish the mind like you would your body. The mind cannot survive on junk food. — Brian Tracy”
  
 
 -----
