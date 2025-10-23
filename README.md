@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Nourish the mind like you would your body. The mind cannot survive on junk food. — Brian Tracy”
+> “The purpose of life is to contribute in some way to making things better. — Robert F. Kennedy”
  
 
 -----
