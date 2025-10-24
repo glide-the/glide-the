@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The purpose of life is to contribute in some way to making things better. — Robert F. Kennedy”
+> “Love never keeps a man from pursuing his destiny. — Paulo Coelho”
  
 
 -----
