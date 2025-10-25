@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Love never keeps a man from pursuing his destiny. — Paulo Coelho”
+> “What people say, what people do, and what they say they do are entirely different things.  — Margaret Mead”
  
 
 -----
