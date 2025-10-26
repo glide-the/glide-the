@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “What people say, what people do, and what they say they do are entirely different things.  — Margaret Mead”
+> “Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — Steve Harvey”
  
 
 -----
