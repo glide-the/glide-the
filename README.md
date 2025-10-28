@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A little impatience will spoil great plans. — Chinese Proverb”
+> “Life is like playing the violin in public and learning the instrument as one goes on. — Samuel Butler”
  
 
 -----
