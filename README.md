@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is like playing the violin in public and learning the instrument as one goes on. — Samuel Butler”
+> “Remember we're all in this alone. — Lily Tomlin”
  
 
 -----
