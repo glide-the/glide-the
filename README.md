@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you. — Paramahansa Yogananda”
+> “Courage is found in unlikely places. — J.R.R. Tolkien”
  
 
 -----
