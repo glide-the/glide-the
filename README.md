@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Courage is found in unlikely places. — J.R.R. Tolkien”
+> “Never put off to tomorrow what you can do to-day. — Thomas Jefferson”
  
 
 -----
