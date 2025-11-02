@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Never put off to tomorrow what you can do to-day. — Thomas Jefferson”
+> “Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — Buddha”
  
 
 -----
