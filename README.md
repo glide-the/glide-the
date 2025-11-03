@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — Buddha”
+> “There is only the one reality, neither to be realized nor attained. — Huang Po”
  
 
 -----
