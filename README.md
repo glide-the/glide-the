@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There is only the one reality, neither to be realized nor attained. — Huang Po”
+> “The greatest step towards a life of simplicity is to learn to let go. — Steve Maraboli”
  
 
 -----
