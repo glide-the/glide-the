@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Work out your own salvation. Do not depend on others. — Buddha”
+> “Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — Samuel Beckett”
  
 
 -----
