@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — Samuel Beckett”
+> “As mortals, we're ruled by conditions, not by ourselves. — Bodhidharma”
  
 
 -----
