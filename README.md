@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fashion fades, only style remains the same. — Coco Chanel”
+> “Would you rather learn to deal with the truth now than be forced to do so later on? — Celestine Chua”
  
 
 -----
