@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Would you rather learn to deal with the truth now than be forced to do so later on? — Celestine Chua”
+> “Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — William Faulkner”
  
 
 -----
