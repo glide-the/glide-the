@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — William Faulkner”
+> “Fear can hold you prisoner. Hope can set you free. — Stephen King”
  
 
 -----
