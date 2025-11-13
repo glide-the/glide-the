@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fear can hold you prisoner. Hope can set you free. — Stephen King”
+> “You are not the drop in the ocean, but the ocean in the drop. — Deepak Chopra”
  
 
 -----
