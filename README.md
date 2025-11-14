@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You are not the drop in the ocean, but the ocean in the drop. — Deepak Chopra”
+> “The purpose of life is the expansion of happiness. — Deepak Chopra”
  
 
 -----
