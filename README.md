@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Keep smiling, because life is a beautiful thing and there's so much to smile about. — Marilyn Monroe”
+> “A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — George Bernard Shaw”
  
 
 -----
