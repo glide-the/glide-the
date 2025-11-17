@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — George Bernard Shaw”
+> “Act as if what you do makes a difference. It does. — William James”
  
 
 -----
