@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Act as if what you do makes a difference. It does. — William James”
+> “Don't seek, don't avoid, don't expect. Take what comes and be happy. — Maxime Lagace”
  
 
 -----
