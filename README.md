@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't seek, don't avoid, don't expect. Take what comes and be happy. — Maxime Lagace”
+> “Know yourself and you will win all battles. — Sun Tzu”
  
 
 -----
