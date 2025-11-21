@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it. — Robert Frost”
+> “The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — Robert Kiyosaki”
  
 
 -----
