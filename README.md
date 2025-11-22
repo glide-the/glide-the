@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — Robert Kiyosaki”
+> “Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again. — Og Mandino”
  
 
 -----
