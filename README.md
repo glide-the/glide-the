@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again. — Og Mandino”
+> “As soon as you truly commit to making something happen, the 'how' will reveal itself. — Tony Robbins”
  
 
 -----
