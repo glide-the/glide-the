@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “As soon as you truly commit to making something happen, the 'how' will reveal itself. — Tony Robbins”
+> “Leaders think and talk about solutions. Followers think and talk about the problems. — Brian Tracy”
  
 
 -----
