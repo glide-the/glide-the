@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Leaders think and talk about solutions. Followers think and talk about the problems. — Brian Tracy”
+> “The best way to find yourself is to lose yourself in the service of others. — Mahatma Gandhi”
  
 
 -----
