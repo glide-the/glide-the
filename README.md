@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The best way to find yourself is to lose yourself in the service of others. — Mahatma Gandhi”
+> “Even if you persuade me, you won't persuade me. — Aristophanes”
  
 
 -----
