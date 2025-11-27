@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Even if you persuade me, you won't persuade me. — Aristophanes”
+> “Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — Benjamin Mays”
  
 
 -----
