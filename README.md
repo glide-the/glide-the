@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Focused, hard work is the real key to success. — John Carmack”
+> “Tis not too late to seek a newer world. — Heraclitus”
  
 
 -----
