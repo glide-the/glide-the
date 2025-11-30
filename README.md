@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Tis not too late to seek a newer world. — Heraclitus”
+> “Don't talk about what you have done or what you are going to do. — Thomas Jefferson”
  
 
 -----
