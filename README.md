@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't talk about what you have done or what you are going to do. — Thomas Jefferson”
+> “Listening well is as powerful as talking well, and is also as essential to true conversation. — Chinese Proverb”
  
 
 -----
