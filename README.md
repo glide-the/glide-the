@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Listening well is as powerful as talking well, and is also as essential to true conversation. — Chinese Proverb”
+> “I never dwell on what happened. You can't change it. Move forward. — Joan Rivers”
  
 
 -----
