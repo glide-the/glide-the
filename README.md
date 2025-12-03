@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I never dwell on what happened. You can't change it. Move forward. — Joan Rivers”
+> “Arise, slay thy enemies, enjoy a prosperous kingdom. — Bhagavad Gita”
  
 
 -----
