@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Arise, slay thy enemies, enjoy a prosperous kingdom. — Bhagavad Gita”
+> “You can have the mind or you can have the moment. — Naval Ravikant”
  
 
 -----
