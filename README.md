@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You can have the mind or you can have the moment. — Naval Ravikant”
+> “Fear is stupid. So are regrets. — Marilyn Monroe”
  
 
 -----
