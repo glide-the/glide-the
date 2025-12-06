@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fear is stupid. So are regrets. — Marilyn Monroe”
+> “I pay attention to every minute of the day. — Steve Harvey”
  
 
 -----
