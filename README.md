@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I pay attention to every minute of the day. — Steve Harvey”
+> “A loving heart is the truest wisdom. — Charles Dickens”
  
 
 -----
