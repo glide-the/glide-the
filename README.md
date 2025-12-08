@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A loving heart is the truest wisdom. — Charles Dickens”
+> “To be calm is the highest achievement of the self. — Zen Proverb”
  
 
 -----
