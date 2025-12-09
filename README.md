@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To be calm is the highest achievement of the self. — Zen Proverb”
+> “Perfectionism is simply putting a limit on your future. — John Eliot”
  
 
 -----
