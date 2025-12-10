@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Perfectionism is simply putting a limit on your future. — John Eliot”
+> “The man who moved the mountain was the one who began carrying away the smallest stones. — Zen Proverb”
  
 
 -----
