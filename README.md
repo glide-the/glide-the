@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The man who moved the mountain was the one who began carrying away the smallest stones. — Zen Proverb”
+> “Out of suffering have emerged the strongest souls; the most massive characters are seared with scars. — Kahlil Gibran”
  
 
 -----
