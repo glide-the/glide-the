@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Out of suffering have emerged the strongest souls; the most massive characters are seared with scars. — Kahlil Gibran”
+> “Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — Robert Kiyosaki”
  
 
 -----
