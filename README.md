@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — Robert Kiyosaki”
+> “Life is a traveling to the edge of knowledge, then a leap taken. — D. H. Lawrence”
  
 
 -----
