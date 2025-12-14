@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is a traveling to the edge of knowledge, then a leap taken. — D. H. Lawrence”
+> “Give more than you think you can, trusting that you are richer than you think. — Jon Kabat-Zinn”
  
 
 -----
