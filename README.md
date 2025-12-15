@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Give more than you think you can, trusting that you are richer than you think. — Jon Kabat-Zinn”
+> “Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff. — Kamal Ravikant”
  
 
 -----
