@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff. — Kamal Ravikant”
+> “Heroes don't need to talk about what they did. — W.P. Kinsella”
  
 
 -----
