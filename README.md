@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Heroes don't need to talk about what they did. — W.P. Kinsella”
+> “Find something you love and do it better than everyone else. — Gurbaksh Chahal”
  
 
 -----
