@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Find something you love and do it better than everyone else. — Gurbaksh Chahal”
+> “You can have results or excuses, but not both. — Arnold Schwarzenegger”
  
 
 -----
