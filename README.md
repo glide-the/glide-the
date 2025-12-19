@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You can have results or excuses, but not both. — Arnold Schwarzenegger”
+> “If a thing is worth doing, it is worth doing badly. — Gilbert Chesterton”
  
 
 -----
