@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If a thing is worth doing, it is worth doing badly. — Gilbert Chesterton”
+> “Small men think they are small; great men never know they are great.  — Chinese Proverb”
  
 
 -----
