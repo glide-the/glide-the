@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Small men think they are small; great men never know they are great.  — Chinese Proverb”
+> “There are no ordinary moments. — Dan Millman”
  
 
 -----
