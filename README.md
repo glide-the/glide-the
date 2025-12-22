@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There are no ordinary moments. — Dan Millman”
+> “Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly. — Marcus Aurelius”
  
 
 -----
