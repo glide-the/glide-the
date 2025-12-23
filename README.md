@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly. — Marcus Aurelius”
+> “He suffers more than necessary, who suffers before it is necessary.   — Seneca”
  
 
 -----
