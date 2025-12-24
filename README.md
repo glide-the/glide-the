@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “He suffers more than necessary, who suffers before it is necessary.   — Seneca”
+> “I have lost friends, some by death...others by sheer inability to cross the street. — Virginia Woolf”
  
 
 -----
