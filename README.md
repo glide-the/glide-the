@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I have lost friends, some by death...others by sheer inability to cross the street. — Virginia Woolf”
+> “If you love life, don't waste time, for time is what life is made up of.  — Bruce Lee”
  
 
 -----
