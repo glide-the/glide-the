@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you are far from the enemy, make him believe you are near. — Sun Tzu”
+> “20 percent of your activities will account for 80 percent of your results. — Brian Tracy”
  
 
 -----
