@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A memory is a beautiful thing, it's almost a desire that you miss. — Gustave Flaubert”
+> “Time doesn't heal emotional pain, you need to learn how to let go. — Roy T. Bennett”
  
 
 -----
