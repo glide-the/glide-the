@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — Marcus Aurelius”
+> “Be approximately right rather than exactly wrong. — John Tukey”
  
 
 -----
