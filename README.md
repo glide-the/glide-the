@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Be approximately right rather than exactly wrong. — John Tukey”
+> “True friendship ought never to conceal what it thinks.  — St. Jerome”
  
 
 -----
