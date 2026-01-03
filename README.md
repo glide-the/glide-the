@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “True friendship ought never to conceal what it thinks.  — St. Jerome”
+> “To be of use to the world is the only way to be happy. — Hans Christian Andersen”
  
 
 -----
