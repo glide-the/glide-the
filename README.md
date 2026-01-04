@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To be of use to the world is the only way to be happy. — Hans Christian Andersen”
+> “The strength of a wall is neither greater nor less than the courage of the men who defend it.  — Genghis Khan”
  
 
 -----
