@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You were born to win, but to be a winner, you must plan to win, prepare to win, expect to win. — Arnold Schwarzenegger”
+> “For all evils there are two remedies - time and silence. — Alexandre Dumas”
  
 
 -----
