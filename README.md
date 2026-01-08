@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “For all evils there are two remedies - time and silence. — Alexandre Dumas”
+> “The farther backward you can look, the farther forward you are likely to see. — Winston Churchill”
  
 
 -----
