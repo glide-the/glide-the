@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The farther backward you can look, the farther forward you are likely to see. — Winston Churchill”
+> “Whatever you are, be a good one. — Abraham Lincoln”
  
 
 -----
