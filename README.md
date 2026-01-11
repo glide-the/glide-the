@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To love means loving the unlovable. — Gilbert Chesterton”
+> “Enthusiasm makes up for a host of deficiencies. — Barack Obama”
  
 
 -----
