@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Enthusiasm makes up for a host of deficiencies. — Barack Obama”
+> “Prefer to be defeated in the presence of the wise than to excel among fools. — Dogen”
  
 
 -----
