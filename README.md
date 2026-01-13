@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Prefer to be defeated in the presence of the wise than to excel among fools. — Dogen”
+> “Money poisons you when you've got it, and starves you when you haven't. — D. H. Lawrence”
  
 
 -----
