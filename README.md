@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Money poisons you when you've got it, and starves you when you haven't. — D. H. Lawrence”
+> “Stay away from people who makes you feel like you are wasting their time. — Paulo Coelho”
  
 
 -----
