@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Stay away from people who makes you feel like you are wasting their time. — Paulo Coelho”
+> “Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — Steve Harvey”
  
 
 -----
