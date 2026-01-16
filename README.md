@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — Steve Harvey”
+> “If you can handle rejection, you'll learn to get everything you want. — Tony Robbins”
  
 
 -----
