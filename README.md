@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you can handle rejection, you'll learn to get everything you want. — Tony Robbins”
+> “The biggest challenge after success is shutting up about it. — Criss Jami”
  
 
 -----
