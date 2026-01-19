@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage. — Celestine Chua”
+> “Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it. — Alexandre Dumas”
  
 
 -----
