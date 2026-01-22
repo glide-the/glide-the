@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Words, once they are printed, have a life of their own. — Carol Burnett”
+> “I am always doing what I cannot do yet, in order to learn how to do it. — Vincent van Gogh”
  
 
 -----
