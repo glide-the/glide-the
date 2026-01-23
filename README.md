@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I am always doing what I cannot do yet, in order to learn how to do it. — Vincent van Gogh”
+> “My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — Charles Darwin”
  
 
 -----
