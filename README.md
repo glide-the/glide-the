@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — Charles Darwin”
+> “Stop wasting time defending your problems and work on addressing them instead. — Celestine Chua”
  
 
 -----
