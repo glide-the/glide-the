@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Stop wasting time defending your problems and work on addressing them instead. — Celestine Chua”
+> “Always be a first rate version of yourself and not a second rate version of someone else. — Judy Garland”
  
 
 -----
