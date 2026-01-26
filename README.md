@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Always be a first rate version of yourself and not a second rate version of someone else. — Judy Garland”
+> “If you do not change direction, you may end up where you are heading. — Lao Tzu”
  
 
 -----
