@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You don't need anybody to tell you who you are or what you are. You are what you are! — John Lennon”
+> “Simple words, repeated daily, can change your life. — Maxime Lagace”
  
 
 -----
