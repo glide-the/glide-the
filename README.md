@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Simple words, repeated daily, can change your life. — Maxime Lagace”
+> “If it is not right, do not do it, if it is not true, do not say it. — Marcus Aurelius”
  
 
 -----
