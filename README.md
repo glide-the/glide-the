@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We are born from a quiet sleep, and we die to a calm awakening — Zhuangzi”
+> “Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim. — John D. Rockefeller”
  
 
 -----
