@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim. — John D. Rockefeller”
+> “Success and failure come and go, but don't let them define you. It's who you are that matters. — Kamal Ravikant”
  
 
 -----
