@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Success and failure come and go, but don't let them define you. It's who you are that matters. — Kamal Ravikant”
+> “Forgive yourself for your faults and your mistakes and move on. — Les Brown”
  
 
 -----
