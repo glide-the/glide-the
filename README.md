@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Forgive yourself for your faults and your mistakes and move on. — Les Brown”
+> “A minute's success pays the failure of years. — Robert Browning”
  
 
 -----
