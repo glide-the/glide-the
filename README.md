@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Money poisons you when you've got it, and starves you when you haven't. — D. H. Lawrence”
+> “Don't stumble over something that's behind you. — Steve Harvey”
  
 
 -----
