@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Presents are made for the pleasure of who gives them, not the merits of who receives them. — Carlos Ruiz Zafon”
+> “Adults are just children who earn money. — Kenneth Branagh”
  
 
 -----
