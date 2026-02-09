@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Adults are just children who earn money. — Kenneth Branagh”
+> “Do not allow your inner doubts to keep you from achieving what you can do. — Lolly Daskal”
  
 
 -----
