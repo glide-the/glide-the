@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Do not allow your inner doubts to keep you from achieving what you can do. — Lolly Daskal”
+> “Do you want to know who you are? Don't ask. Act! Action will delineate and define you. — Thomas Jefferson”
  
 
 -----
