@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Do you want to know who you are? Don't ask. Act! Action will delineate and define you. — Thomas Jefferson”
+> “We can change our lives. We can do, have, and be exactly what we wish. — Tony Robbins”
  
 
 -----
