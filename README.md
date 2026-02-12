@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We can change our lives. We can do, have, and be exactly what we wish. — Tony Robbins”
+> “We have no more right to consume happiness without producing it than to consume wealth without producing it. — George Bernard Shaw”
  
 
 -----
