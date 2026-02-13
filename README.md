@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We have no more right to consume happiness without producing it than to consume wealth without producing it. — George Bernard Shaw”
+> “Sometimes you have to travel a long way to find what is near. — Paulo Coelho”
  
 
 -----
