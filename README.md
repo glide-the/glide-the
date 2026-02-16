@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Observe things as they are and don't pay attention to other people. — Huang Po”
+> “Take into account that great love and great achievements involve great risk. — Dalai Lama”
  
 
 -----
