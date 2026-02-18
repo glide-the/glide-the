@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy. — Elon Musk”
+> “Fear is a natural reaction to moving closer to the truth. — Pema Chodron”
  
 
 -----
