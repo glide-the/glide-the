@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fear is a natural reaction to moving closer to the truth. — Pema Chodron”
+> “It's not about what it is, it's about what it can become. — Dr. Seuss”
  
 
 -----
