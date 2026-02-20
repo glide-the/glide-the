@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It's not about what it is, it's about what it can become. — Dr. Seuss”
+> “We lie the loudest when we lie to ourselves. — Eric Hoffer”
  
 
 -----
