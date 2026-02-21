@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We lie the loudest when we lie to ourselves. — Eric Hoffer”
+> “Poetry is written with tears, fiction with blood, and history with invisible ink. — Carlos Ruiz Zafon”
  
 
 -----
