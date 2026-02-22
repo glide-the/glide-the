@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Poetry is written with tears, fiction with blood, and history with invisible ink. — Carlos Ruiz Zafon”
+> “Whenever you do a thing, act as if all the world were watching. — Thomas Jefferson”
  
 
 -----
