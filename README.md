@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You can have the mind or you can have the moment. — Naval Ravikant”
+> “The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — Norman Vincent Peale”
  
 
 -----
