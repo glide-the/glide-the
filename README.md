@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — Norman Vincent Peale”
+> “People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — Maya Angelou”
  
 
 -----
