@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — Maya Angelou”
+> “You purchase pain with all that joy can give and die of nothing but a rage to live. — Alexander Pope”
  
 
 -----
