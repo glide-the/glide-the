@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You purchase pain with all that joy can give and die of nothing but a rage to live. — Alexander Pope”
+> “Don't listen to the person who has the answers; listen to the person who has the questions. — Albert Einstein”
  
 
 -----
