@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't listen to the person who has the answers; listen to the person who has the questions. — Albert Einstein”
+> “I no doubt deserved my enemies, but I don't believe I deserved my friends. — Walt Whitman”
  
 
 -----
