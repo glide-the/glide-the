@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I no doubt deserved my enemies, but I don't believe I deserved my friends. — Walt Whitman”
+> “The greatest test of courage on earth is to bear defeat without losing heart. — Robert Greene”
  
 
 -----
