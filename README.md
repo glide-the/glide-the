@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The greatest test of courage on earth is to bear defeat without losing heart. — Robert Greene”
+> “Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — Charles Dickens”
  
 
 -----
