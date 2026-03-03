@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — Charles Dickens”
+> “Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good. — Bhagavad Gita”
  
 
 -----
