@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good. — Bhagavad Gita”
+> “To lead the people, walk behind them. — Lao Tzu”
  
 
 -----
