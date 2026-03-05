@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To lead the people, walk behind them. — Lao Tzu”
+> “Friendship is like money, easier made than kept. — Samuel Butler”
  
 
 -----
