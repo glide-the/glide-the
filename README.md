@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Friendship is like money, easier made than kept. — Samuel Butler”
+> “Trust thyself: every heart vibrates to that iron string. — Ralph Waldo Emerson”
  
 
 -----
