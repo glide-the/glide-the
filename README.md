@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Trust thyself: every heart vibrates to that iron string. — Ralph Waldo Emerson”
+> “The more we value things, the less we value ourselves.   — Bruce Lee”
  
 
 -----
