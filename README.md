@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Lost Time is never found again. — Benjamin Franklin”
+> “Don't be afraid to give up the good to go for the great. — John D. Rockefeller”
  
 
 -----
