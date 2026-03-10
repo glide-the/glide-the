@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't be afraid to give up the good to go for the great. — John D. Rockefeller”
+> “If you think you can do a thing or think you can't do a thing, you're right. — Henry Ford”
  
 
 -----
