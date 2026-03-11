@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you think you can do a thing or think you can't do a thing, you're right. — Henry Ford”
+> “Nothing external to you has any power over you. — Ralph Waldo Emerson”
  
 
 -----
