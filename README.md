@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Nothing external to you has any power over you. — Ralph Waldo Emerson”
+> “Reversing your treatment of the man you have wronged is better than asking his forgiveness. — Elbert Hubbard”
  
 
 -----
