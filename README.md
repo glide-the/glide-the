@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Reversing your treatment of the man you have wronged is better than asking his forgiveness. — Elbert Hubbard”
+> “Meditate. It won't be fun but it will surface what you need to deal with. — Naval Ravikant”
  
 
 -----
