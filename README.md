@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Meditate. It won't be fun but it will surface what you need to deal with. — Naval Ravikant”
+> “We are all like the bright moon, we still have our darker side.   — Kahlil Gibran”
  
 
 -----
