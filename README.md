@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We are all like the bright moon, we still have our darker side.   — Kahlil Gibran”
+> “An inventor is a man who asks Why? of the universe and lets nothing stand between the answer and his mind. — Ayn Rand”
  
 
 -----
