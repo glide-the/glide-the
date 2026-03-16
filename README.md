@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “An inventor is a man who asks Why? of the universe and lets nothing stand between the answer and his mind. — Ayn Rand”
+> “The less you talk about your shame, the more of it you have. — Mark Manson”
  
 
 -----
