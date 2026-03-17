@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The less you talk about your shame, the more of it you have. — Mark Manson”
+> “The most important battle is one to conquer yourself. — Yanni”
  
 
 -----
