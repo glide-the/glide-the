@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The most important battle is one to conquer yourself. — Yanni”
+> “It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — Roy T. Bennett”
  
 
 -----
