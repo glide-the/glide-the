@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — Roy T. Bennett”
+> “Don't worry about being successful, but work toward being significant and the success will naturally follow. — Oprah Winfrey”
  
 
 -----
