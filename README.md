@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't worry about being successful, but work toward being significant and the success will naturally follow. — Oprah Winfrey”
+> “Trust, like the soul, never returns once it is gone. — Publilius Syrus”
  
 
 -----
