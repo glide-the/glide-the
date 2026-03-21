@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Trust, like the soul, never returns once it is gone. — Publilius Syrus”
+> “Art is to console those who are broken by life. — Vincent van Gogh”
  
 
 -----
