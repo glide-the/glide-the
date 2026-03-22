@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Art is to console those who are broken by life. — Vincent van Gogh”
+> “Successful people tend to become more successful because they are always thinking about their successes. — Brian Tracy”
  
 
 -----
