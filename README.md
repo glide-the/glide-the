@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Successful people tend to become more successful because they are always thinking about their successes. — Brian Tracy”
+> “If you love life, don't waste time, for time is what life is made up of.  — Bruce Lee”
  
 
 -----
