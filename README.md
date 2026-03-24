@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you love life, don't waste time, for time is what life is made up of.  — Bruce Lee”
+> “If you want to achieve greatness stop asking for permission. — Unknown”
  
 
 -----
