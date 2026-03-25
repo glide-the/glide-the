@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you want to achieve greatness stop asking for permission. — Unknown”
+> “The best way out is always through. — Robert Frost”
  
 
 -----
