@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The best way out is always through. — Robert Frost”
+> “Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — Joan Rivers”
  
 
 -----
