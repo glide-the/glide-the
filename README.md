@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — Joan Rivers”
+> “Enthusiasm is a vital element toward the individual success of every man or woman. — Conrad Hilton”
  
 
 -----
