@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Enthusiasm is a vital element toward the individual success of every man or woman. — Conrad Hilton”
+> “The man who moved the mountain was the one who began carrying away the smallest stones. — Zen Proverb”
  
 
 -----
