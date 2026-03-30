@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To a mind that is still, the entire universe surrenders. — Zhuangzi”
+> “If you want work well done, select a busy man; the other kind has no time. — Elbert Hubbard”
  
 
 -----
