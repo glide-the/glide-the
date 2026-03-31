@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you want work well done, select a busy man; the other kind has no time. — Elbert Hubbard”
+> “Victory is always possible for the person who refuses to stop fighting. — Napoleon Hill”
  
 
 -----
