@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Victory is always possible for the person who refuses to stop fighting. — Napoleon Hill”
+> “Everything is in your own heart. — Thich Nhat Hanh”
  
 
 -----
