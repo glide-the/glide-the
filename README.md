@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Everything is in your own heart. — Thich Nhat Hanh”
+> “Success is about doing the right thing, not about doing everything right. — Gary Keller”
  
 
 -----
