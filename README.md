@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Everyone thinks of changing the world, but no one thinks of changing himself. — Leo Tolstoy”
+> “Every limit is a beginning as well as an ending. — George Eliot”
  
 
 -----
