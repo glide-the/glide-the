@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Every limit is a beginning as well as an ending. — George Eliot”
+> “The eye with which I see God is the same eye with which God sees me. — Meister Eckhart”
  
 
 -----
