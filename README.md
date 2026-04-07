@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — Robert Kiyosaki”
+> “Don't spend time beating on a wall, hoping to transform it into a door. — Coco Chanel”
  
 
 -----
