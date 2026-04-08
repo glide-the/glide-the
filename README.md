@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't spend time beating on a wall, hoping to transform it into a door. — Coco Chanel”
+> “The dream is free, but the hustle is sold separately. — Steve Harvey”
  
 
 -----
