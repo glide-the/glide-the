@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The dream is free, but the hustle is sold separately. — Steve Harvey”
+> “If you've never eaten while crying you don t know what life tastes like. — Johann Wolfgang von Goethe”
  
 
 -----
