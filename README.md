@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you've never eaten while crying you don t know what life tastes like. — Johann Wolfgang von Goethe”
+> “Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — Sigmund Freud”
  
 
 -----
