@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Against the assault of laughter nothing can stand. — Mark Twain”
+> “Faith means believing the unbelievable. — Gilbert Chesterton”
  
 
 -----
