@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Faith means believing the unbelievable. — Gilbert Chesterton”
+> “Opportunities don't often come along. So, when they do, you have to grab them. — Audrey Hepburn”
  
 
 -----
