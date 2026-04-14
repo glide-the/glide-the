@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Opportunities don't often come along. So, when they do, you have to grab them. — Audrey Hepburn”
+> “It is only depth of character that determines the profundity with which we face life. — Ming-Dao Deng”
  
 
 -----
