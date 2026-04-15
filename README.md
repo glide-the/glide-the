@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It is only depth of character that determines the profundity with which we face life. — Ming-Dao Deng”
+> “Among the things you can give and still keep are your word, a smile, and a grateful heart. — Zig Ziglar”
  
 
 -----
