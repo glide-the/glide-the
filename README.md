@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Among the things you can give and still keep are your word, a smile, and a grateful heart. — Zig Ziglar”
+> “Life goes by fast. Enjoy it. Calm down. It's all funny. — Joan Rivers”
  
 
 -----
