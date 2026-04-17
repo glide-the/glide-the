@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life goes by fast. Enjoy it. Calm down. It's all funny. — Joan Rivers”
+> “Beauty is not in the face; beauty is a light in the heart. — Kahlil Gibran”
  
 
 -----
