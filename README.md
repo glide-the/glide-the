@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Beauty is not in the face; beauty is a light in the heart. — Kahlil Gibran”
+> “Where words fail, music speaks. — Hans Christian Andersen”
  
 
 -----
