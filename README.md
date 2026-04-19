@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Where words fail, music speaks. — Hans Christian Andersen”
+> “Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — Earl Nightingale”
  
 
 -----
