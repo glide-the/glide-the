@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — Earl Nightingale”
+> “Selfishness and greed, individual or national, cause most of our troubles. — Harry S. Truman”
  
 
 -----
