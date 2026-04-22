@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A good teacher opens the door for you, but you must enter the room by yourself. — Zen Proverb”
+> “Strategy is a commodity, execution is an art. — Peter Drucker”
  
 
 -----
