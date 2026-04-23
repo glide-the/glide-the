@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Strategy is a commodity, execution is an art. — Peter Drucker”
+> “No one returns from a long journey the same person they were before. — Zen Proverb”
  
 
 -----
