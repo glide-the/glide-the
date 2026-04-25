@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Leadership starts at the top. — Morgan Wootten”
+> “It is our choices that show what we truly are, far more than our abilities. — Albus Dumbledore”
  
 
 -----
