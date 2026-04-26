@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It is our choices that show what we truly are, far more than our abilities. — Albus Dumbledore”
+> “Take care of your cents: dollars will take care of themselves. — Thomas Jefferson”
  
 
 -----
