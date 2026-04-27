@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Take care of your cents: dollars will take care of themselves. — Thomas Jefferson”
+> “Living life in style also means living a life of balance. — Jim Rohn”
  
 
 -----
