@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Living life in style also means living a life of balance. — Jim Rohn”
+> “The longer we dwell on our misfortunes, the greater is their power to harm us. — Voltaire”
  
 
 -----
