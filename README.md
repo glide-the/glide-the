@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The longer we dwell on our misfortunes, the greater is their power to harm us. — Voltaire”
+> “Take responsibility of your own happiness, never put it in other people's hands. — Roy T. Bennett”
  
 
 -----
