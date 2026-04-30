@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Take responsibility of your own happiness, never put it in other people's hands. — Roy T. Bennett”
+> “Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — James Allen”
  
 
 -----
