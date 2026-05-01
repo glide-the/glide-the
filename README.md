@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — James Allen”
+> “We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — Bhagavad Gita”
  
 
 -----
