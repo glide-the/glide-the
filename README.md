@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Question everything. Learn something. Answer nothing. — Euripides”
+> “Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death. — Socrates”
  
 
 -----
