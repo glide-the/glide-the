@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To earn more you must learn more. — Brian Tracy”
+> “Remain calm. Be kind. — Colin Powell”
  
 
 -----
