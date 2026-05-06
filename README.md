@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Remain calm. Be kind. — Colin Powell”
+> “If you put water into a cup, it becomes the cup. — Bruce Lee”
  
 
 -----
