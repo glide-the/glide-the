@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you don't like something change it; if you can't change it, change the way you think about it. — Mary Engelbreit”
+> “If you do not change direction, you may end up where you are heading. — Lao Tzu”
  
 
 -----
