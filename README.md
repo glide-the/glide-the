@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff. — Kamal Ravikant”
+> “Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — Steve Harvey”
  
 
 -----
