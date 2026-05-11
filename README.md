@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — Steve Harvey”
+> “Sometimes it is harder to deprive oneself of a pain than of a pleasure. — F. Scott Fitzgerald”
  
 
 -----
