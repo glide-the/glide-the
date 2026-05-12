@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Sometimes it is harder to deprive oneself of a pain than of a pleasure. — F. Scott Fitzgerald”
+> “We make a living by what we get, but we make a life by what we give. — Unknown”
  
 
 -----
