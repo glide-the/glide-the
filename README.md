@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We make a living by what we get, but we make a life by what we give. — Unknown”
+> “We are willing to believe anything other than the truth. — Carlos Ruiz Zafon”
  
 
 -----
