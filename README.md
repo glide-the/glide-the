@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We are willing to believe anything other than the truth. — Carlos Ruiz Zafon”
+> “You play the hand you're dealt. I think the game's worthwhile.   — Christopher Reeve”
  
 
 -----
