@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You play the hand you're dealt. I think the game's worthwhile.   — Christopher Reeve”
+> “The search for happiness is one of the chief sources of unhappiness. — Eric Hoffer”
  
 
 -----
