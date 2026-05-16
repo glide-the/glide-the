@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The search for happiness is one of the chief sources of unhappiness. — Eric Hoffer”
+> “We are all self-made, but only the successful will admit it. — Earl Nightingale”
  
 
 -----
