@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We are all self-made, but only the successful will admit it. — Earl Nightingale”
+> “One loyal friend is worth ten thousand relatives. — Euripides”
  
 
 -----
