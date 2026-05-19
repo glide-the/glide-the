@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has. — Margaret Mead”
+> “Fallback to local wisdom.”
  
 
 -----
