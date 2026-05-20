@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fallback to local wisdom.”
+> “Either you choose to stay in the shallow end of the pool or you go out into the ocean. — Christopher Reeve”
  
 
 -----
