@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Either you choose to stay in the shallow end of the pool or you go out into the ocean. — Christopher Reeve”
+> “Luck is a matter of preparation meeting opportunity. — Oprah Winfrey”
  
 
 -----
