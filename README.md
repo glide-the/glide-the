@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Luck is a matter of preparation meeting opportunity. — Oprah Winfrey”
+> “Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it! — Sathya Sai Baba”
  
 
 -----
