@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it! — Sathya Sai Baba”
+> “Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. — Steve Jobs”
  
 
 -----
