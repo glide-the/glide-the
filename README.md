@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. — Steve Jobs”
+> “Wise men speak because they have something to say; Fools because they have to say something. — Plato”
  
 
 -----
