@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Wise men speak because they have something to say; Fools because they have to say something. — Plato”
+> “Lying can never save us from another lie. — Vaclav Havel”
  
 
 -----
