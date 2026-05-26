@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Lying can never save us from another lie. — Vaclav Havel”
+> “Unless a man is master of his soul, all other kinds of mastery amount to little. — Theodore Roosevelt”
  
 
 -----
