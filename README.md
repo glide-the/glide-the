@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Unless a man is master of his soul, all other kinds of mastery amount to little. — Theodore Roosevelt”
+> “The difference between ordinary and extraordinary is that little extra. — Colin R. Davis”
  
 
 -----
