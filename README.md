@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The difference between ordinary and extraordinary is that little extra. — Colin R. Davis”
+> “I have no methods; all I do is accept people as they are. — Joan Rivers”
  
 
 -----
