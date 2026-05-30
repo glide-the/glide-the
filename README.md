@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Be willing to be a beginner every single morning. — Meister Eckhart”
+> “A rational person can find peace by cultivating indifference to things outside of their control. — Naval Ravikant”
  
 
 -----
