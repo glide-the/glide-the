@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Catch, then, O catch the transient hour; Improve each moment as it flies! — St. Jerome”
+> “A lot of people have gone further than they thought they could because someone else thought they could. — Zig Ziglar”
  
 
 -----
