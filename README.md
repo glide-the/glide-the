@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Even when a friend does something you do not like, he continues to be your friend. — Genghis Khan”
+> “Man's character is his fate. — Heraclitus”
  
 
 -----
