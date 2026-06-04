@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Man's character is his fate. — Heraclitus”
+> “Write to help yourself, publish to help others. — Jack Butcher”
  
 
 -----
