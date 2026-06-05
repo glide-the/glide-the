@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Write to help yourself, publish to help others. — Jack Butcher”
+> “I hear and I forget. I see and I remember. I do and I understand. — Confucius”
  
 
 -----
