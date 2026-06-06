@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I hear and I forget. I see and I remember. I do and I understand. — Confucius”
+> “To create more positive results in your life, replace 'if only' with 'next time'. — Celestine Chua”
  
 
 -----
