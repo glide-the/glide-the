@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To create more positive results in your life, replace 'if only' with 'next time'. — Celestine Chua”
+> “If you've never eaten while crying you don t know what life tastes like. — Johann Wolfgang von Goethe”
  
 
 -----
