@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you've never eaten while crying you don t know what life tastes like. — Johann Wolfgang von Goethe”
+> “First say to yourself what you would be; and then do what you have to do. — Epictetus”
  
 
 -----
