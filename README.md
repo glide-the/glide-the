@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving. — Martin Luther King, Jr.”
+> “Choose a job you love, and you will never have to work a day in your life. — Confucius”
  
 
 -----
