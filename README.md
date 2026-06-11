@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Choose a job you love, and you will never have to work a day in your life. — Confucius”
+> “Adventure is worthwhile in itself. — Amelia Earhart”
  
 
 -----
