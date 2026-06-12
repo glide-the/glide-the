@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Adventure is worthwhile in itself. — Amelia Earhart”
+> “One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — Tony Robbins”
  
 
 -----
