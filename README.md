@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — Tony Robbins”
+> “The road to success and the road to failure are almost exactly the same. — Colin R. Davis”
  
 
 -----
