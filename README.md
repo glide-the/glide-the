@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The road to success and the road to failure are almost exactly the same. — Colin R. Davis”
+> “To accomplish big things, I am convinced you must first dream big dreams. — Conrad Hilton”
  
 
 -----
