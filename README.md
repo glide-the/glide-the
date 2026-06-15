@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To accomplish big things, I am convinced you must first dream big dreams. — Conrad Hilton”
+> “Progress is impossible without change, and those who cannot change their minds cannot change anything. — George Bernard Shaw”
  
 
 -----
