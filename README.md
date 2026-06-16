@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Progress is impossible without change, and those who cannot change their minds cannot change anything. — George Bernard Shaw”
+> “The truly rich men are the ones who have health, loved ones and a work they love. — Maxime Lagace”
  
 
 -----
