@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The truly rich men are the ones who have health, loved ones and a work they love. — Maxime Lagace”
+> “Observe things as they are and don't pay attention to other people. — Huang Po”
  
 
 -----
