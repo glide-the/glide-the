@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Knowing your own darkness is the best method for dealing with the darknesses of other people. — Carl Jung”
+> “Unless you're ashamed of yourself now and then, you're not honest. — William Faulkner”
  
 
 -----
