@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Unless you're ashamed of yourself now and then, you're not honest. — William Faulkner”
+> “Pain doesn't last. And when it's gone, we have something to show for it. Growth. — Kamal Ravikant”
  
 
 -----
