@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Pain doesn't last. And when it's gone, we have something to show for it. Growth. — Kamal Ravikant”
+> “There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — Henry Ward Beecher”
  
 
 -----
