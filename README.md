@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — Henry Ward Beecher”
+> “Trust thyself: every heart vibrates to that iron string. — Ralph Waldo Emerson”
  
 
 -----
