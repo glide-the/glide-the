@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Trust thyself: every heart vibrates to that iron string. — Ralph Waldo Emerson”
+> “Don't be afraid that you do not know something. Be afraid of not learning about it. — Zen Proverb”
  
 
 -----
