@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Make no small plans for they have no power to stir the soul. — Niccolo Machiavelli”
+> “Superstars think like superstars long before the fans or the press anoint them. — John Eliot”
  
 
 -----
