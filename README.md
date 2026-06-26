@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Superstars think like superstars long before the fans or the press anoint them. — John Eliot”
+> “Wake up and smile! Wake up and be grateful! — Steve Harvey”
  
 
 -----
