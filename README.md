@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Wake up and smile! Wake up and be grateful! — Steve Harvey”
+> “Distant water does not put out a nearby fire. — Chinese Proverb”
  
 
 -----
