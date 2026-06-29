@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Each day provides it's own gifts. — Marcus Aurelius”
+> “Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — Norman Vincent Peale”
  
 
 -----
