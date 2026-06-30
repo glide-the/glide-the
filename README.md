@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — Norman Vincent Peale”
+> “Convinced myself, I seek not to convince. — Edgar Allan Poe”
  
 
 -----
