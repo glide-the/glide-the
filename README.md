@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There is no path to Happiness. Happiness is the path. — Dan Millman”
+> “He who can, does. — George Bernard Shaw”
  
 
 -----
