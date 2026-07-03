@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “He who can, does. — George Bernard Shaw”
+> “Empty your mind, be formless, shapeless, like water. — Bruce Lee”
  
 
 -----
