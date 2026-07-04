@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Empty your mind, be formless, shapeless, like water. — Bruce Lee”
+> “Each day your life grows a day shorter. Make every move count. — Ming-Dao Deng”
  
 
 -----
