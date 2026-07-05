@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Each day your life grows a day shorter. Make every move count. — Ming-Dao Deng”
+> “Dreams are the touchstones of our characters. — Henry David Thoreau”
  
 
 -----
