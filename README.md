@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Have the fearless attitude of a hero and the loving heart of a child. — Soyen Shaku”
+> “Never feel shame for trying and failing, for he who has never failed is he who has never tried. — Og Mandino”
  
 
 -----
