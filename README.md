@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Never feel shame for trying and failing, for he who has never failed is he who has never tried. — Og Mandino”
+> “Fallacies do not cease to be fallacies because they become fashions. — Gilbert Chesterton”
  
 
 -----
