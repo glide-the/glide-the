@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fallacies do not cease to be fallacies because they become fashions. — Gilbert Chesterton”
+> “What the caterpillar calls the end of the world, the master calls a butterfly. — Richard Bach”
  
 
 -----
