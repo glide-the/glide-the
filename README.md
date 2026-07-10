@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “What the caterpillar calls the end of the world, the master calls a butterfly. — Richard Bach”
+> “A clear conscience never fears midnight knocking. — Chinese Proverb”
  
 
 -----
