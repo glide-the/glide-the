@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A clear conscience never fears midnight knocking. — Chinese Proverb”
+> “Fear of death is fear of the Unknown. — Adi Da Samraj”
  
 
 -----
