@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fear of death is fear of the Unknown. — Adi Da Samraj”
+> “Life must be a constant education; one must learn everything, from speaking to dying. — Gustave Flaubert”
  
 
 -----
