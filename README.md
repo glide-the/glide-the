@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life must be a constant education; one must learn everything, from speaking to dying. — Gustave Flaubert”
+> “Man's character is his fate. — Heraclitus”
  
 
 -----
