@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Man's character is his fate. — Heraclitus”
+> “Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — Herbert Hoover”
  
 
 -----
