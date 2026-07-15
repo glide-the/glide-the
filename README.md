@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — Herbert Hoover”
+> “Life is a succession of lessons, which must be lived to be understood. — Ralph Waldo Emerson”
  
 
 -----
