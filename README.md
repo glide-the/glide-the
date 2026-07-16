@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is a succession of lessons, which must be lived to be understood. — Ralph Waldo Emerson”
+> “Work out your own salvation. Do not depend on others. — Buddha”
  
 
 -----
