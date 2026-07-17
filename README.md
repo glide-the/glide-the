@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Work out your own salvation. Do not depend on others. — Buddha”
+> “Success is like reaching an important birthday and finding you're exactly the same. — Audrey Hepburn”
  
 
 -----
