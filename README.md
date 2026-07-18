@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Success is like reaching an important birthday and finding you're exactly the same. — Audrey Hepburn”
+> “Success is walking from failure to failure with no loss of enthusiasm. — Colin R. Davis”
  
 
 -----
