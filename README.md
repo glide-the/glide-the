@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Success is walking from failure to failure with no loss of enthusiasm. — Colin R. Davis”
+> “The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — Albus Dumbledore”
  
 
 -----
