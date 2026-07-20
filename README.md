@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — Albus Dumbledore”
+> “If it is here, it is everywhere. If it is not here, it is nowhere. — Tibetan Proverb”
  
 
 -----
