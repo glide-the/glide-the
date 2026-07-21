@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If it is here, it is everywhere. If it is not here, it is nowhere. — Tibetan Proverb”
+> “When you love someone, you love the person as they are, and not as you'd like them to be. — Leo Tolstoy”
  
 
 -----
