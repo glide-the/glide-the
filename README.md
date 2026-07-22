@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “When you love someone, you love the person as they are, and not as you'd like them to be. — Leo Tolstoy”
+> “To be great is to be misunderstood. — Ralph Waldo Emerson”
  
 
 -----
