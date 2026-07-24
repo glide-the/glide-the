@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The best fighter is never angry. — Lao Tzu”
+> “However difficult life may seem, there is always something you can do and succeed at. — Stephen Hawking”
  
 
 -----
