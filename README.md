@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “However difficult life may seem, there is always something you can do and succeed at. — Stephen Hawking”
+> “As soon as you truly commit to making something happen, the 'how' will reveal itself. — Tony Robbins”
  
 
 -----
