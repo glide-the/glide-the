@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Nothing will work unless you do. — Maya Angelou”
+> “Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — Peter Drucker”
  
 
 -----
