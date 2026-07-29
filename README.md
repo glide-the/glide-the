@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It's possible in ways both large or small to make a difference in someone's life. — Yanni”
+> “Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine. — Roy T. Bennett”
  
 
 -----
