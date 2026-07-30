@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine. — Roy T. Bennett”
+> “We forge the chains we wear in life. — Charles Dickens”
  
 
 -----
