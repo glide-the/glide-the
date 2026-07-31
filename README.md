@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We forge the chains we wear in life. — Charles Dickens”
+> “Fallback to local wisdom.”
  
 
 -----
