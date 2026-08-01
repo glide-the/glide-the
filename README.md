@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fallback to local wisdom.”
+> “Turn the pain into power. — Unknown”
  
 
 -----
