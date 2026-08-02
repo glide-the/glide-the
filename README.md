@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Turn the pain into power. — Unknown”
+> “Only the educated are free. — Epictetus”
  
 
 -----
