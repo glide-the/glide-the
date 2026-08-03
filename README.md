@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Only the educated are free. — Epictetus”
+> “Peace is not the absence of conflict, but the ability to cope with it. — Unknown”
  
 
 -----
