@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Character is the result of two things: mental attitude and the way we spend our time. — Elbert Hubbard”
+> “Life is either a daring adventure, or nothing. — Helen Keller”
  
 
 -----
