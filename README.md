@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is either a daring adventure, or nothing. — Helen Keller”
+> “By seeking and blundering we learn. — Johann Wolfgang von Goethe”
  
 
 -----
