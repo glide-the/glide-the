@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “By seeking and blundering we learn. — Johann Wolfgang von Goethe”
+> “What the eye doesn't see and the mind doesn't know, doesn't exist. — D. H. Lawrence”
  
 
 -----
