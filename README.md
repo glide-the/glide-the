@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “What the eye doesn't see and the mind doesn't know, doesn't exist. — D. H. Lawrence”
+> “You are always your own best guru, your own best teacher, the answers are always inside you. — Sathya Sai Baba”
  
 
 -----
