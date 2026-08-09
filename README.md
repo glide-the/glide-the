@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You are always your own best guru, your own best teacher, the answers are always inside you. — Sathya Sai Baba”
+> “Stop wasting time looking at someone else's reality while doing nothing about yours. — Steve Harvey”
  
 
 -----
