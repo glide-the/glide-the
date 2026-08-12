@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The most wasted day of all is that on which we have not laughed. — Nicolas Chamfort”
+> “Only in the agony of parting do we look into the depths of love. — George Eliot”
  
 
 -----
