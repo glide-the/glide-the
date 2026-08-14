@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There is nothing better than the encouragement of a good friend. — David Brinkley”
+> “We must embrace pain and burn it as fuel for our journey. — Kenji Miyazawa”
  
 
 -----
