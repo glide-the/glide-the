@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We must embrace pain and burn it as fuel for our journey. — Kenji Miyazawa”
+> “The source of a true smile is an awakened mind. — Thich Nhat Hanh”
  
 
 -----
