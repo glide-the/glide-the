@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The source of a true smile is an awakened mind. — Thich Nhat Hanh”
+> “Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — Carlos Ruiz Zafon”
  
 
 -----
