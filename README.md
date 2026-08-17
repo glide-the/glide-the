@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — Carlos Ruiz Zafon”
+> “Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you. — Lao Tzu”
  
 
 -----
