@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you. — Lao Tzu”
+> “There is a big difference between being centered and being self-centered. — Lolly Daskal”
  
 
 -----
