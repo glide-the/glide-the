@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There is a big difference between being centered and being self-centered. — Lolly Daskal”
+> “Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you. — Norman Vincent Peale”
  
 
 -----
