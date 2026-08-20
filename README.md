@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you. — Norman Vincent Peale”
+> “A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — Ming-Dao Deng”
  
 
 -----
