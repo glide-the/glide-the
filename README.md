@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — Ming-Dao Deng”
+> “In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better. — Spencer Johnson”
  
 
 -----
