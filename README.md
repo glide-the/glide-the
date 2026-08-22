@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better. — Spencer Johnson”
+> “Never lose hope. Storms make people stronger and never last forever. — Roy T. Bennett”
  
 
 -----
