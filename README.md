@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Never lose hope. Storms make people stronger and never last forever. — Roy T. Bennett”
+> “Every strike brings me closer to the next home run. — Babe Ruth”
  
 
 -----
