@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Every strike brings me closer to the next home run. — Babe Ruth”
+> “If anything is worth doing, do it with all your heart. — Buddha”
  
 
 -----
