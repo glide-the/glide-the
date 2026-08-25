@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If anything is worth doing, do it with all your heart. — Buddha”
+> “Heal the past, live the present, dream the future. — Mary Engelbreit”
  
 
 -----
