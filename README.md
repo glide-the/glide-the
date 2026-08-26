@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Heal the past, live the present, dream the future. — Mary Engelbreit”
+> “Take care of your cents: dollars will take care of themselves. — Thomas Jefferson”
  
 
 -----
