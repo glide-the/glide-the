@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “What the eye doesn't see and the mind doesn't know, doesn't exist. — D. H. Lawrence”
+> “Life is all about mistakes. It is constant change and growth. — Neale Donald Walsch”
  
 
 -----
