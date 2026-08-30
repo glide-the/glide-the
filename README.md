@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — Steve Harvey”
+> “I am not the outcome. I am never the result. I am only the effort. — Kamal Ravikant”
  
 
 -----
