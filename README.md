@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I am not the outcome. I am never the result. I am only the effort. — Kamal Ravikant”
+> “If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — Mark Twain”
  
 
 -----
