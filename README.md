@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — Mark Twain”
+> “You don't have to be great to start, but you have to start to be great. — Zig Ziglar”
  
 
 -----
