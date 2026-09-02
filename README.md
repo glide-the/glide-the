@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You don't have to be great to start, but you have to start to be great. — Zig Ziglar”
+> “Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny. — Jeff Booth”
  
 
 -----
