@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Watch your actions, they become habits; watch your habits, they become character; watch your character, for it becomes your destiny. — Jeff Booth”
+> “The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination. — Elbert Hubbard”
  
 
 -----
