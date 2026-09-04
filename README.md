@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination. — Elbert Hubbard”
+> “We must have strong minds, ready to accept facts as they are. — Harry S. Truman”
  
 
 -----
