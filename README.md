@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We must have strong minds, ready to accept facts as they are. — Harry S. Truman”
+> “The more something threatens your identity, the more you will avoid it. — Mark Manson”
  
 
 -----
