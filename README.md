@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The more something threatens your identity, the more you will avoid it. — Mark Manson”
+> “Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — William James”
  
 
 -----
