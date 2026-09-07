@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — William James”
+> “Go confidently in the direction of your dreams. Live the life you've imagined. — Arnold Schwarzenegger”
  
 
 -----
