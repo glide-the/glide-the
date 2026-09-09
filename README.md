@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “To be of use to the world is the only way to be happy. — Hans Christian Andersen”
+> “It is better to point out your own mistakes than have somebody else do it. — Warren Buffett”
  
 
 -----
