@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — Ralph Marston”
+> “Your mind will make you rich or poor, depending on the use you put to it. — Brian Tracy”
  
 
 -----
