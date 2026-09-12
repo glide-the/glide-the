@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Your mind will make you rich or poor, depending on the use you put to it. — Brian Tracy”
+> “The power of man has grown in every sphere, except over himself. — Winston Churchill”
  
 
 -----
