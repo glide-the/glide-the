@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The power of man has grown in every sphere, except over himself. — Winston Churchill”
+> “You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — A.A. Milne”
  
 
 -----
