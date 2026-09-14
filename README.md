@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — A.A. Milne”
+> “Some people want it to happen, some wish it would happen, others make it happen. — Michael Jordan”
  
 
 -----
