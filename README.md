@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Some people want it to happen, some wish it would happen, others make it happen. — Michael Jordan”
+> “Our truest life is when we are in dreams awake. — Henry David Thoreau”
  
 
 -----
