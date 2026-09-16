@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Our truest life is when we are in dreams awake. — Henry David Thoreau”
+> “Leadership is solving problems — Colin Powell”
  
 
 -----
