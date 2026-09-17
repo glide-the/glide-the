@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Leadership is solving problems — Colin Powell”
+> “Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — Morihei Ueshiba”
  
 
 -----
