@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — Morihei Ueshiba”
+> “No amount of regretting can change the past, and no amount of worrying can change the future. — Roy T. Bennett”
  
 
 -----
