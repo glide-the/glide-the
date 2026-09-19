@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “No amount of regretting can change the past, and no amount of worrying can change the future. — Roy T. Bennett”
+> “Anything becomes interesting if you look at it long enough.. — Gustave Flaubert”
  
 
 -----
