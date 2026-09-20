@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Anything becomes interesting if you look at it long enough.. — Gustave Flaubert”
+> “There are no secrets to success. It is the result of preparation, hard work, and learning from failure. — Colin Powell”
  
 
 -----
