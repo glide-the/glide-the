@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There are no secrets to success. It is the result of preparation, hard work, and learning from failure. — Colin Powell”
+> “Be brave enough to suck at something new. — Unknown”
  
 
 -----
