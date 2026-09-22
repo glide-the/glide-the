@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Be brave enough to suck at something new. — Unknown”
+> “Talk to someone about themselves and they'll listen for hours. — Dale Carnegie”
  
 
 -----
