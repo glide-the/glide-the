@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't spend time beating on a wall, hoping to transform it into a door. — Coco Chanel”
+> “Presents are made for the pleasure of who gives them, not the merits of who receives them. — Carlos Ruiz Zafon”
  
 
 -----
