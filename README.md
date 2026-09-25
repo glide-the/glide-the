@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Presents are made for the pleasure of who gives them, not the merits of who receives them. — Carlos Ruiz Zafon”
+> “If you have to be in a soap opera try not to be cast in the worst role. — Judy Garland”
  
 
 -----
