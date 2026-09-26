@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you have to be in a soap opera try not to be cast in the worst role. — Judy Garland”
+> “Treat every moment as your last. It is not preparation for something else. — Shunryu Suzuki”
  
 
 -----
