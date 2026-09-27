@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Treat every moment as your last. It is not preparation for something else. — Shunryu Suzuki”
+> “Sometimes you have to shut your eyes, so you can see the real beauty. — Kilian Jornet”
  
 
 -----
