@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Sometimes you have to shut your eyes, so you can see the real beauty. — Kilian Jornet”
+> “Either you run the day or the day runs you. — Jim Rohn”
  
 
 -----
