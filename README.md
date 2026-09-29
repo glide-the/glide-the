@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Either you run the day or the day runs you. — Jim Rohn”
+> “Fallback to local wisdom.”
  
 
 -----
