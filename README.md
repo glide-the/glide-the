@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “When you reach the top of the mountain, keep climbing. — Zen Proverb”
+> “He who knows, does not speak. He who speaks, does not know. — Lao Tzu”
  
 
 -----
