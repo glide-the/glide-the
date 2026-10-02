@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “He who knows, does not speak. He who speaks, does not know. — Lao Tzu”
+> “When it hurts - observe. Life is trying to teach you something. — Anita Krizzan”
  
 
 -----
