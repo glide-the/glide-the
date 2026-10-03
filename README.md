@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “When it hurts - observe. Life is trying to teach you something. — Anita Krizzan”
+> “It's the job that's never started that takes the longest to finish. — J.R.R. Tolkien”
  
 
 -----
