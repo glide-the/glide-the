@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Don't wish it were easier, wish you were better. — Jim Rohn”
+> “The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — Josh Waitzkin”
  
 
 -----
