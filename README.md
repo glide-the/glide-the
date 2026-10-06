@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — Josh Waitzkin”
+> “Give more than you think you can, trusting that you are richer than you think. — Jon Kabat-Zinn”
  
 
 -----
