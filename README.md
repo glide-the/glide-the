@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Give more than you think you can, trusting that you are richer than you think. — Jon Kabat-Zinn”
+> “Cherish forever what makes you unique, cuz you're really a yawn if it goes. — Bette Midler”
  
 
 -----
