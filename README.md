@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Cherish forever what makes you unique, cuz you're really a yawn if it goes. — Bette Midler”
+> “Even the finest sword plunged into salt water will eventually rust. — Sun Tzu”
  
 
 -----
