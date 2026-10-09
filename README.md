@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Even the finest sword plunged into salt water will eventually rust. — Sun Tzu”
+> “You are now, and you do become, what you think about. — Earl Nightingale”
  
 
 -----
