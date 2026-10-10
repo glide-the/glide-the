@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You are now, and you do become, what you think about. — Earl Nightingale”
+> “Being a good example is the best form of service. — Sathya Sai Baba”
  
 
 -----
