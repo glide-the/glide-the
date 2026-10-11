@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Being a good example is the best form of service. — Sathya Sai Baba”
+> “Rivers know this: there is no hurry. We shall get there some day. — A.A. Milne”
  
 
 -----
