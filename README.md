@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Rivers know this: there is no hurry. We shall get there some day. — A.A. Milne”
+> “One day, in retrospect, the years of struggle will strike you as the most beautiful. — Sigmund Freud”
  
 
 -----
