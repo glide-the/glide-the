@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “One day, in retrospect, the years of struggle will strike you as the most beautiful. — Sigmund Freud”
+> “Our thoughts are highly influenced by the people around us and everything we read, see, and do. — Jeff Booth”
  
 
 -----
