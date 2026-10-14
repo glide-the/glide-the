@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Our thoughts are highly influenced by the people around us and everything we read, see, and do. — Jeff Booth”
+> “I'd rather welcome change than cling to the past. — Robert Kiyosaki”
  
 
 -----
