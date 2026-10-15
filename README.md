@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I'd rather welcome change than cling to the past. — Robert Kiyosaki”
+> “Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — Steve Harvey”
  
 
 -----
