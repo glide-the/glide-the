@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — Steve Harvey”
+> “All you need is passion. If you have a passion for something, you'll create the talent. — Yanni”
  
 
 -----
