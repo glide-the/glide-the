@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “All you need is passion. If you have a passion for something, you'll create the talent. — Yanni”
+> “Your greatest asset is your earning ability. Your greatest resource is your time. — Brian Tracy”
  
 
 -----
