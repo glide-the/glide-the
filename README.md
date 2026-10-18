@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Your greatest asset is your earning ability. Your greatest resource is your time. — Brian Tracy”
+> “A heart is not judged by how much you love, but by how much you are loved by others. — Judy Garland”
  
 
 -----
