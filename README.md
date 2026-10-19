@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A heart is not judged by how much you love, but by how much you are loved by others. — Judy Garland”
+> “Always render more and better service than is expected of you, no matter what your task may be. — Og Mandino”
  
 
 -----
