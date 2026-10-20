@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Always render more and better service than is expected of you, no matter what your task may be. — Og Mandino”
+> “Be happy in the moment, that's enough. Each moment is all we need, not more. — Mother Teresa”
  
 
 -----
