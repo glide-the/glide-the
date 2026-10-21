@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Be happy in the moment, that's enough. Each moment is all we need, not more. — Mother Teresa”
+> “If you pray for rain, be prepared to deal with some mud. — Mary Engelbreit”
  
 
 -----
