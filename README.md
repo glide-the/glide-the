@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you pray for rain, be prepared to deal with some mud. — Mary Engelbreit”
+> “Charms strike the sight, but merit wins the soul. — Alexander Pope”
  
 
 -----
