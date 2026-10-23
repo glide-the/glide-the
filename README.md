@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Charms strike the sight, but merit wins the soul. — Alexander Pope”
+> “If it's not broken, tinker with it till you find out how it works. — Bob Proctor”
  
 
 -----
