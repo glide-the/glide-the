@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If it's not broken, tinker with it till you find out how it works. — Bob Proctor”
+> “Discipline is the mark of intelligent living. — Sathya Sai Baba”
  
 
 -----
