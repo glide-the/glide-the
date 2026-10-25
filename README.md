@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Discipline is the mark of intelligent living. — Sathya Sai Baba”
+> “Winners are not people who never fail, but people who never quit. — Arnold Schwarzenegger”
  
 
 -----
