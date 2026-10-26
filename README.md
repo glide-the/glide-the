@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Winners are not people who never fail, but people who never quit. — Arnold Schwarzenegger”
+> “Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work. — John Eliot”
  
 
 -----
