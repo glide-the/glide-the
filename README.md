@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work. — John Eliot”
+> “We are what we repeatedly do. Excellence, then, is not an act, but a habit. — Aristotle”
  
 
 -----
