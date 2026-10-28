@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “We are what we repeatedly do. Excellence, then, is not an act, but a habit. — Aristotle”
+> “Every day passes whether you participate or not. — Ming-Dao Deng”
  
 
 -----
