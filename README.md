@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Every day passes whether you participate or not. — Ming-Dao Deng”
+> “Give so much away people insist on paying you. — Jack Butcher”
  
 
 -----
