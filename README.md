@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Give so much away people insist on paying you. — Jack Butcher”
+> “Showing off is the fool's idea of glory. — Bruce Lee”
  
 
 -----
