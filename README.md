@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Showing off is the fool's idea of glory. — Bruce Lee”
+> “A diamond is a piece of charcoal that handled stress exceptionally well. — Unknown”
  
 
 -----
