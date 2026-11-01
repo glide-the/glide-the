@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “A diamond is a piece of charcoal that handled stress exceptionally well. — Unknown”
+> “There are no second chances in life, except to feel remorse. — Carlos Ruiz Zafon”
  
 
 -----
