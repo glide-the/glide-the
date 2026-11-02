@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There are no second chances in life, except to feel remorse. — Carlos Ruiz Zafon”
+> “The number one cause of failure is the fear of failure. — Steve Harvey”
  
 
 -----
