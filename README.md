@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The number one cause of failure is the fear of failure. — Steve Harvey”
+> “Humans and prosperity never endure side by side for long. — Herodotus”
  
 
 -----
