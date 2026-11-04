@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Humans and prosperity never endure side by side for long. — Herodotus”
+> “You make your own luck if you stay at it long enough. — Naval Ravikant”
  
 
 -----
