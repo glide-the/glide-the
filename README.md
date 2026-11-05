@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “You make your own luck if you stay at it long enough. — Naval Ravikant”
+> “Trust, like the soul, never returns once it is gone. — Publilius Syrus”
  
 
 -----
