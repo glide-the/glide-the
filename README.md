@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “What you do today can improve all your tomorrows. — Ralph Marston”
+> “Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — Robert Greene”
  
 
 -----
