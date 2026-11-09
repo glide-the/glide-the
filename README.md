@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The wise pursue wisdom, the dull follow in blind faith. — Tibetan Proverb”
+> “It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it. — Dale Carnegie”
  
 
 -----
