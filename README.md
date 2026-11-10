@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it. — Dale Carnegie”
+> “Life has no limitations except the ones you make. — Les Brown”
  
 
 -----
