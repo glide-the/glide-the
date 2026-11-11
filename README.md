@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life has no limitations except the ones you make. — Les Brown”
+> “The guest will judge better of a feast than the cook. — Aristotle”
  
 
 -----
