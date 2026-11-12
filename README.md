@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The guest will judge better of a feast than the cook. — Aristotle”
+> “Never test the depth of river with both the feet. — Warren Buffett”
  
 
 -----
