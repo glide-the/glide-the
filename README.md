@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Never test the depth of river with both the feet. — Warren Buffett”
+> “If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — Elon Musk”
  
 
 -----
