@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — Elon Musk”
+> “No duty is more urgent than that of returning thanks. — James Allen”
  
 
 -----
