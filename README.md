@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “No duty is more urgent than that of returning thanks. — James Allen”
+> “Your mind will make you rich or poor, depending on the use you put to it. — Brian Tracy”
  
 
 -----
