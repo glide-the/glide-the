@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Your mind will make you rich or poor, depending on the use you put to it. — Brian Tracy”
+> “How much pain they have cost us, the evils which have never happened. — Thomas Jefferson”
  
 
 -----
