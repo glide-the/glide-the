@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “How much pain they have cost us, the evils which have never happened. — Thomas Jefferson”
+> “The price of inaction is far greater than the cost of making a mistake. — Meister Eckhart”
  
 
 -----
