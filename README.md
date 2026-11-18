@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The price of inaction is far greater than the cost of making a mistake. — Meister Eckhart”
+> “Fear of death is fear of the Unknown. — Adi Da Samraj”
  
 
 -----
