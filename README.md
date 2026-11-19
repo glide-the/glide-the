@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Fear of death is fear of the Unknown. — Adi Da Samraj”
+> “It's your life-but only if you make it so. — Eleanor Roosevelt”
  
 
 -----
