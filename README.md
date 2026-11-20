@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “It's your life-but only if you make it so. — Eleanor Roosevelt”
+> “I put my heart and soul into my work, and I have lost my mind in the process. — Vincent van Gogh”
  
 
 -----
