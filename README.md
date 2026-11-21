@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “I put my heart and soul into my work, and I have lost my mind in the process. — Vincent van Gogh”
+> “There are dark shadows on the earth, but its lights are stronger in the contrast. — Charles Dickens”
  
 
 -----
