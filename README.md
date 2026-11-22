@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “There are dark shadows on the earth, but its lights are stronger in the contrast. — Charles Dickens”
+> “Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — Mark Manson”
  
 
 -----
