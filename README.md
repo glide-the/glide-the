@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — Mark Manson”
+> “When awareness arises in you, it means awareness is arising in the collective mind of humanity. — Eckhart Tolle”
  
 
 -----
