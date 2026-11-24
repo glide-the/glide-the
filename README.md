@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “When awareness arises in you, it means awareness is arising in the collective mind of humanity. — Eckhart Tolle”
+> “All human wisdom is contained in these two words - Wait and Hope — Alexandre Dumas”
  
 
 -----
