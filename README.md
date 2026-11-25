@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “All human wisdom is contained in these two words - Wait and Hope — Alexandre Dumas”
+> “If you change the way you look at things, the things you look at change. — Wayne Dyer”
  
 
 -----
