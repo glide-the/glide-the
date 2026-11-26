@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “If you change the way you look at things, the things you look at change. — Wayne Dyer”
+> “The heart wants what it wants. There's no logic. — Woody Allen”
  
 
 -----
