@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “The heart wants what it wants. There's no logic. — Woody Allen”
+> “Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — Alfred Adler”
  
 
 -----
