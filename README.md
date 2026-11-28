@@ -41,7 +41,7 @@ Often pierces through the illusions he observes — and tends to get in trouble 
 
 ### 🧭 Motto of the Day
 
-> “Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — Alfred Adler”
+> “Intelligent men are cruel. Stupid men are monstrously cruel. — Jack London”
  
 
 -----
